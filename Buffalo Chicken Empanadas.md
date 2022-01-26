@@ -1,4 +1,4 @@
-![empanadas](https://github.com/kengraf/recipies/blob/main/images/chicken-empanadas-recipe-3-650x975.jpg)
+![empanadas](images/chicken-empanadas-recipe-3-650x975.jpg)
 
 ## INGREDIENTS
 - 1 package (8 ounces) cream cheese, softened
