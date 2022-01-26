@@ -1,4 +1,4 @@
-![](images/db124dd4-0d29-409f-8704-2843da8ce01f.jpg)
+![](../Images/db124dd4-0d29-409f-8704-2843da8ce01f.jpg)
 
 ## INGREDIENTS
 - 1/4 cup chicken broth or stock
