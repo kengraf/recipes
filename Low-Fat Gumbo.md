@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/27f18983-f556-472e-b837-d7b367da5d8a.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-
+[![](./images/27f18983-f556-472e-b837-d7b367da5d8a.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-
 _Food_Category_Prod/379/587/0237454_854x480.jpg)
 
 #  Low-Fat Gumbo

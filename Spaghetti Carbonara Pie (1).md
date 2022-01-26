@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/6101e67f-052a-4f2d-8b94-bf0e6cdb06f4.jpg)](https://www.italianfoodforever.com/wp-
+[![](./images/6101e67f-052a-4f2d-8b94-bf0e6cdb06f4.jpg)](https://www.italianfoodforever.com/wp-
 content/uploads/2016/05/carbonarapie3-200x200.jpg)
 
 #  Spaghetti Carbonara Pie

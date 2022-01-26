@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/48da4e84-7802-4f4d-abe4-de172b5938cf.jpg)](http://natashaskitchen.com/wp-
+[![](./images/48da4e84-7802-4f4d-abe4-de172b5938cf.jpg)](http://natashaskitchen.com/wp-
 content/uploads/2015/06/Cucumber-tomato-avocado-salad-6-300x450.jpg)
 
 #  Cucumber Tomato Avocado Salad

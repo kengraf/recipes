@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/007117f7-013d-41d5-aa8f-992e318b8355.jpg)](https://www.dinneratthezoo.com/wp-
+[![](./images/007117f7-013d-41d5-aa8f-992e318b8355.jpg)](https://www.dinneratthezoo.com/wp-
 content/uploads/2016/08/baked-buffalo-wings-11.jpg.webp)
 
 #  Baked Buffalo Wings

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/88554b92-2775-42e5-bc8f-7b762b80fe0e.jpg)](https://res.cloudinary.com/paleoleap/image/upload/f_auto,q_70/v1447451945/j-paleo/sweet-
+[![](./images/88554b92-2775-42e5-bc8f-7b762b80fe0e.jpg)](https://res.cloudinary.com/paleoleap/image/upload/f_auto,q_70/v1447451945/j-paleo/sweet-
 potato-spinach-bacon-quiche-main.jpg)
 
 #  Sweet Potato, Spinach, and Bacon Quiche

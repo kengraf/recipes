@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/f8b54915-c08a-4591-a736-f9a9773232fb.jpg)](https://images.media-
+[![](./images/f8b54915-c08a-4591-a736-f9a9773232fb.jpg)](https://images.media-
 allrecipes.com/userphotos/250x250/660029.jpg)
 
 #  Gumbo Style Chicken Creole

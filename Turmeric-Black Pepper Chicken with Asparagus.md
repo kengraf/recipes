@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/6440b5c8-945b-4d24-9052-328dbbe88f0f.jpg)](https://static01.nyt.com/images/2020/03/26/dining/as-
+[![](./images/6440b5c8-945b-4d24-9052-328dbbe88f0f.jpg)](https://static01.nyt.com/images/2020/03/26/dining/as-
 turmeric-
 chicken/merlin_170459076_be9517b6-6c9d-47f1-bb27-843d6c777088-articleLarge.jpg)
 

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/ba0c09c5-51bf-40bd-a2fb-5d6c28c77b48.jpg)](http://s3.amazonaws.com/foodpair-2/images/499387/large/img9l.jpg?1310521246)
+[![](./images/ba0c09c5-51bf-40bd-a2fb-5d6c28c77b48.jpg)](http://s3.amazonaws.com/foodpair-2/images/499387/large/img9l.jpg?1310521246)
 
 #  Kale and Red Bean Gumbo SAVE
 

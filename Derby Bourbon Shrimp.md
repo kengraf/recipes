@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/dc3afa57-d60c-410c-b680-35678c3612a3.jpg)](http://www.dispatch.com/content/graphics/2015/04/28/derby-4.jpg?__scale=w:660%2Ch:487%2Ct:1%2Cc:ffffff%2Cq:80%2Cr:1)
+[![](./images/dc3afa57-d60c-410c-b680-35678c3612a3.jpg)](http://www.dispatch.com/content/graphics/2015/04/28/derby-4.jpg?__scale=w:660%2Ch:487%2Ct:1%2Cc:ffffff%2Cq:80%2Cr:1)
 
 #  Derby Bourbon Shrimp
 

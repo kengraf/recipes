@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/c4290b9e-7b21-4764-984f-6a60be267cba.jpg)](http://toriavey.com/images/2013/01/Smoked-
+[![](./images/c4290b9e-7b21-4764-984f-6a60be267cba.jpg)](http://toriavey.com/images/2013/01/Smoked-
 Paprika-Roasted-Potatoes.jpg)
 
 #  Smoked Paprika Roasted Potatoes

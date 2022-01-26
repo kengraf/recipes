@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/c537d0a3-45d3-4bd9-8afc-4494068cf0ca.jpg)](http://www.marthastewart.com/sites/files/marthastewart.com/styles/wmax-520-highdpi/public/d23/med102963_0607_linguini/med102963_0607_linguini_vert.jpg?itok=jNTe7G-R)
+[![](./images/c537d0a3-45d3-4bd9-8afc-4494068cf0ca.jpg)](http://www.marthastewart.com/sites/files/marthastewart.com/styles/wmax-520-highdpi/public/d23/med102963_0607_linguini/med102963_0607_linguini_vert.jpg?itok=jNTe7G-R)
 
 #  Linguine with White Clam Sauce
 

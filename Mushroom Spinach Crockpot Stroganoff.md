@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/0546f31c-70f0-4f41-945d-685062a9be06.jpg)](http://newleafwellness.biz/wp-
+[![](./images/0546f31c-70f0-4f41-945d-685062a9be06.jpg)](http://newleafwellness.biz/wp-
 content/uploads/2015/03/Mushroom-Spinach-Crockpot-Stroganoff-copy.jpg)
 
 #  Mushroom Spinach Crockpot Stroganoff

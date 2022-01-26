@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/0c83f206-99a9-4927-b94b-02ad284c7935.jpg)](https://47qz0mxgojo3bqn2n341by51-wpengine.netdna-
+[![](./images/0c83f206-99a9-4927-b94b-02ad284c7935.jpg)](https://47qz0mxgojo3bqn2n341by51-wpengine.netdna-
 ssl.com/wp-content/uploads/2015/01/Crow_30D_Shoot-Images-077-200x200.jpg)
 
 #  Tomato Scallion Rice

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/8f251aa0-e687-4689-8494-45795f319ddb.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/4/FNM_050113-Seafood-
+[![](./images/8f251aa0-e687-4689-8494-45795f319ddb.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/4/FNM_050113-Seafood-
 Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
 
 #  Seafood Salad

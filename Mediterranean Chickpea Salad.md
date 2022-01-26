@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/d4272003-65b7-4ae4-9606-79ffc5dc64d2.jpg)](http://images.media-
+[![](./images/d4272003-65b7-4ae4-9606-79ffc5dc64d2.jpg)](http://images.media-
 allrecipes.com/userphotos/720x405/336648.jpg)
 
 #  Mediterranean Chickpea Salad

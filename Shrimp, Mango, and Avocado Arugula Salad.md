@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/2071a34e-e82a-48c6-9f9f-e8dcb5bd4e57.jpg)](http://del.h-cdn.co/assets/15/24/980x490/landscape-1433883959-shrimp-
+[![](./images/2071a34e-e82a-48c6-9f9f-e8dcb5bd4e57.jpg)](http://del.h-cdn.co/assets/15/24/980x490/landscape-1433883959-shrimp-
 arugula-salad.JPG)
 
 #  Shrimp, Mango, and Avocado Arugula Salad

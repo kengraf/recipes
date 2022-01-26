@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/849c79ac-1470-4608-91e4-d8756261a5be.jpg)](http://cdn-
+[![](./images/849c79ac-1470-4608-91e4-d8756261a5be.jpg)](http://cdn-
 image.myrecipes.com/sites/default/files/styles/300x300/public/image/recipes/rs/2001/sweet-
 potatoes-rs-524071-x.jpg?itok=RgltmIPf)
 

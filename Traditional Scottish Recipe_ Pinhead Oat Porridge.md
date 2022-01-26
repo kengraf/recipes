@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/fd545f89-14ed-45df-a5df-50c174573018.jpg)](http://foodanddrink.scotsman.com/wp-
+[![](./images/fd545f89-14ed-45df-a5df-50c174573018.jpg)](http://foodanddrink.scotsman.com/wp-
 content/uploads/2016/09/Frontpage-page-001.jpg)
 
 #  Traditional Scottish Recipe: Pinhead Oat Porridge

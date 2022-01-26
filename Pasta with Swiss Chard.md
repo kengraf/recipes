@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/71297be5-24ca-4dcb-a429-c7a7944d14a9.jpg)](http://images.media-
+[![](./images/71297be5-24ca-4dcb-a429-c7a7944d14a9.jpg)](http://images.media-
 allrecipes.com/userphotos/720x405/2971985.jpg)
 
 #  Pasta with Swiss Chard

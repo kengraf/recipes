@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/c1fe2e34-a123-4dac-acde-f2433b5336db.jpg)](http://images.media-
+[![](./images/c1fe2e34-a123-4dac-acde-f2433b5336db.jpg)](http://images.media-
 allrecipes.com/userphotos/250x250/160914.jpg)
 
 #  Black-Eyed Pea Gumbo

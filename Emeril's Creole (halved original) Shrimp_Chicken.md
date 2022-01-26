@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/6e5da571-4266-437e-bd0b-c9a6f4d52383.jpg)](https://www.emerils.com/sites/default/files/styles/wmax-600-sq/public/IMG_8324.JPG?itok=o2il77-n)
+[![](./images/6e5da571-4266-437e-bd0b-c9a6f4d52383.jpg)](https://www.emerils.com/sites/default/files/styles/wmax-600-sq/public/IMG_8324.JPG?itok=o2il77-n)
 
 #  Emeril's Creole (halved original) Shrimp/Chicken
 

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/7b6242f7-2d6c-45fe-a6ec-7417d9b7b915.jpg)](http://assets.eatingwell.com/sites/default/files/imagecache/standard/recipes/MV7206.JPG)
+[![](./images/7b6242f7-2d6c-45fe-a6ec-7417d9b7b915.jpg)](http://assets.eatingwell.com/sites/default/files/imagecache/standard/recipes/MV7206.JPG)
 
 #  Vegetarian Taco Salad
 

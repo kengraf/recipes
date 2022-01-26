@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/1e8b25ca-
+[![](./images/1e8b25ca-
 eeaf-4b69-99fe-696f898ccb2a.jpg)](http://foodnetwork.sndimg.com/content/dam/images/food/fullset/2007/1/19/0/gi0210_salad1.jpg.rend.sni12col.landscape.jpeg)
 
 #  Black Bean Salad

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/8cda1ed1-f4b3-4692-908a-ba01bf6a4a8f.jpg)](http://del.h-cdn.co/assets/16/08/980x490/landscape-1456325822-delish-
+[![](./images/8cda1ed1-f4b3-4692-908a-ba01bf6a4a8f.jpg)](http://del.h-cdn.co/assets/16/08/980x490/landscape-1456325822-delish-
 cobb-salad-2.jpg)
 
 #  Breaded Chicken Cobb Salad

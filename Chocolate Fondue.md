@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/0876416a-78d6-4f45-b2f0-3691b3ae6e38.jpg)](http://www.simplyrecipes.com/wp-
+[![](./images/0876416a-78d6-4f45-b2f0-3691b3ae6e38.jpg)](http://www.simplyrecipes.com/wp-
 content/uploads/2008/02/chocolate-fondue-horiz-640.jpg)
 
 #  Chocolate Fondue

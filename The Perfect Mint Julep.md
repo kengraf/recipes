@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/da986203-201a-4664-a5d4-7fba332e622a.jpg)](http://foodnetwork.sndimg.com/content/dam/images/food/fullset/2011/9/1/1/CL9683_the-
+[![](./images/da986203-201a-4664-a5d4-7fba332e622a.jpg)](http://foodnetwork.sndimg.com/content/dam/images/food/fullset/2011/9/1/1/CL9683_the-
 perfect-mint-julep_s4x3.jpg.rend.sni12col.landscape.jpeg)
 
 #  The Perfect Mint Julep

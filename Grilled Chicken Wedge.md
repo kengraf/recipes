@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/38454839-38f9-48c9-8f80-30e92be7b0a4.jpg)](http://del.h-cdn.co/assets/16/23/980x490/landscape-1465496434-grilled-
+[![](./images/38454839-38f9-48c9-8f80-30e92be7b0a4.jpg)](http://del.h-cdn.co/assets/16/23/980x490/landscape-1465496434-grilled-
 ckn-wedge-salad-chive-garlic-dressingl2.jpg)
 
 #  Grilled Chicken Wedge

@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/c4c7bb1e-7136-421c-b5c3-a404d3a72ae2.jpg)](http://del.h-cdn.co/assets/16/21/980x490/landscape-1464036871-delish-
+[![](./images/c4c7bb1e-7136-421c-b5c3-a404d3a72ae2.jpg)](http://del.h-cdn.co/assets/16/21/980x490/landscape-1464036871-delish-
 summer-salads-chicken-fajita.jpg)
 
 #  Fajita Chicken Salad

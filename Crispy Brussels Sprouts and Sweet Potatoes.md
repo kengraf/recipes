@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/af98ef14-e78f-4db2-b4fd-2e3af9006e52.jpg)](http://jessicaseinfeld.com/assets/uploads/recipes/517/dscf3097__hero.jpg)
+[![](./images/af98ef14-e78f-4db2-b4fd-2e3af9006e52.jpg)](http://jessicaseinfeld.com/assets/uploads/recipes/517/dscf3097__hero.jpg)
 
 #  Crispy Brussels Sprouts and Sweet Potatoes
 

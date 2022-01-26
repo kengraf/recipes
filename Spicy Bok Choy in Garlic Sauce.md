@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/45704d22-a039-4832-8c35-c489002c25c4.jpg)](http://images.media-
+[![](./images/45704d22-a039-4832-8c35-c489002c25c4.jpg)](http://images.media-
 allrecipes.com/userphotos/720x405/2322420.jpg)
 
 #  Spicy Bok Choy in Garlic Sauce

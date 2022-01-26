@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/8e0e53ff-5646-404a-93d6-15cbb4abf970.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-
+[![](./images/8e0e53ff-5646-404a-93d6-15cbb4abf970.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-
 _Food_Category_Prod/760/831/0249148_480x360.jpg)
 
 #  Roasted Christmas Goose

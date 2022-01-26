@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/65bbbf50-e933-40e6-a601-5df89920206f.jpg)](https://d1e3z2jco40k3v.cloudfront.net/-/media/mccormick-
+[![](./images/65bbbf50-e933-40e6-a601-5df89920206f.jpg)](https://d1e3z2jco40k3v.cloudfront.net/-/media/mccormick-
 us/recipes/mccormick/b/800/beefy-onion-rice-comfort-of-
 cooking.jpg?rev=65367e08a3964d99b794951bcc70aebd&vd=20200628T063721Z&hash=7720C9D075066640D597358774BB1813)
 

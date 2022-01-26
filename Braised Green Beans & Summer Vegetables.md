@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/ec3553ad-
+[![](./images/ec3553ad-
 ecd7-40bf-9409-1eb258fd5084.jpg)](http://assets.eatingwell.com/sites/default/files/imagecache/standard/recipes/SD6855.JPG)
 
 #  Braised Green Beans & Summer Vegetables

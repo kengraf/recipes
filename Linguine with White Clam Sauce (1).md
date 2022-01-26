@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/660f1ef3-0d7b-4741-99bd-596e1ce0c3d5.jpg)](http://images.media-
+[![](./images/660f1ef3-0d7b-4741-99bd-596e1ce0c3d5.jpg)](http://images.media-
 allrecipes.com/userphotos/720x405/3266359.jpg)
 
 #  Linguine with White Clam Sauce

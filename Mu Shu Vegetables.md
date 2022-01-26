@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/60466166-d2ad-44ba-91ed-c9d5849bd5e7.jpg)](http://g.adspeed.net/img/154790.1393723536.jpg)
+[![](./images/60466166-d2ad-44ba-91ed-c9d5849bd5e7.jpg)](http://g.adspeed.net/img/154790.1393723536.jpg)
 
 #  Mu Shu Vegetables
 

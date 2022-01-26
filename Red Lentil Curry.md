@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/55f007ca-b95a-4fb4-96a0-99abb022d42a.jpg)](http://images.media-
+[![](./images/55f007ca-b95a-4fb4-96a0-99abb022d42a.jpg)](http://images.media-
 allrecipes.com/userphotos/720x405/490284.jpg)
 
 #  Red Lentil Curry

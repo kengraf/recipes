@@ -1,6 +1,6 @@
 ﻿
 
-[![](../Images/2c18bbbb-4b2c-4afc-9966-f93830fcefea.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8ca09da2c3_-_crab-
+[![](./images/2c18bbbb-4b2c-4afc-9966-f93830fcefea.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8ca09da2c3_-_crab-
 cakes-0610-msc.jpg)
 
 #  Crab Cakes with Tropical Salad
