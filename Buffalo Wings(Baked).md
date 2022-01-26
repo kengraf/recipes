@@ -2,8 +2,6 @@
 
 #  Baked Buffalo Wings
 
-Uncategorized
-
  **Prep** 20 minutes  
  **Cook** 45 minutes  
  **Makes** Servings 6 servings
