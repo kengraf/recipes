@@ -16,7 +16,7 @@
   * chopped parsley
   * sherry vinegar
   * mayonnaise
-    *   **1** tablespoon each olive oil
+  *   **1** tablespoon each olive oil
   * chopped shallot
   *   **1/4** teaspoon smoked paprika.
   * Season with salt and pepper.
