@@ -6,7 +6,7 @@
  **Cook** 45  
  **Makes** 4  
  **Difficulty** Medium  
-**Source**<https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-with-sausage-and-ricotta>
+**Source:** <https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-with-sausage-and-ricotta>
 
 ###  Ingredients
 
@@ -28,8 +28,6 @@
   * Black pepper, for serving
 
 ###  Directions
-
-PREPARATION
 
 Heat oven to 425 degrees. Heat oil in a 12-inch ovenproof skillet over medium-
 high. Crumble sausage into skillet, using a spoon to break it into small
