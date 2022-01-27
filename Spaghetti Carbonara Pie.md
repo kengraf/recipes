@@ -1,43 +1,25 @@
-﻿
-
-[![](./images/b291191d-4a64-4769-8657-87e30473cf48.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2016/12/14/0/FN_Smitten-
-Kitchen-Spaghetti-Carbonara-
-Pie_s4x3.jpg.rend.hgtvcom.826.620.suffix/1484341244522.jpeg)
+[![](./images/b291191d-4a64-4769-8657-87e30473cf48.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2016/12/14/0/FN_Smitten-Kitchen-Spaghetti-Carbonara-Pie_s4x3.jpg.rend.hgtvcom.826.620.suffix/1484341244522.jpeg)
 
 #  Spaghetti Carbonara Pie
 
-Uncategorized
-
-  
 **Prep** 30 min  
 **Cook** 35 to 40 minutes  
 **Makes** Yield: 8 servings
-**Difficulty** Easy
-**Source:** [Foodnetwork.com](https://www.foodnetwork.com/recipes/spaghetti-
-carbonara-pie-3569348)
+**Difficulty** Easy  
+**Source:** [Foodnetwork.com](https://www.foodnetwork.com/recipes/spaghetti-carbonara-pie-3569348)
 
 ###  Ingredients
 
-  *  
-**1** tablespoon butter
-  *   
-**8** ounces pancetta
-  *   
-**1 1/2** teaspoons coarse or kosher salt, plus more for the cooking water
-  *   
-**1** bunch broccoli rabe
-  *   
-**1** pound dried spaghetti
-  *   
-**2** large eggs
-  *   
-**2 to 3** large yolks
-  *   
-**1 1/4** cups whole milk
-  *   
-**1** teaspoon black pepper
-  *   
-**8** ounces (about 2 cups) finely grated Parmesan and/or aged Pecorino-Romano
+  *  **1** tablespoon butter
+  *   **8** ounces pancetta
+  *   **1 1/2** teaspoons coarse or kosher salt, plus more for the cooking water
+  *   **1 cup** chopped broccoli rabe, spinach, or kale
+  *   **1** pound dried spaghetti
+  *   **2** large eggs
+  *   **2 to 3** large yolks
+  *   **1 1/4** cups whole milk
+  *   **1** teaspoon black pepper
+  *   **8** ounces (about 2 cups) finely grated Parmesan and/or aged Pecorino-Romano
 
 ###  Directions
 
