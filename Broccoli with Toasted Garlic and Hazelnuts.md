@@ -1,5 +1,4 @@
-[![](./images/5b84adf7-e643-4c26-bd8d-13e9dd803d24.jpg)](http://cdn-image.realsimple.com/sites/default/files/styles/rs_main_image/public/image/images/0812/broccoli-
-garlic-hazelnuts_300.jpg?itok=ywltZ_O-)
+[![](./images/5b84adf7-e643-4c26-bd8d-13e9dd803d24.jpg)](http://cdn-image.realsimple.com/sites/default/files/styles/rs_main_image/public/image/images/0812/broccoli-garlic-hazelnuts_300.jpg?itok=ywltZ_O-)
 
 #  Broccoli with Toasted Garlic and Hazelnuts
 
