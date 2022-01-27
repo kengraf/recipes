@@ -1,5 +1,6 @@
 #  Oatmeal Kinlock
 
+**Source:** [](https://foodanddrink.scotsman.com/recipes/traditional-scottish-recipe-pinhead-oat-porridge/)
 
 **Prep** overnight
 
