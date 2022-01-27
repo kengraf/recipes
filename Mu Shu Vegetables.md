@@ -1,34 +1,19 @@
-﻿
-
-[![](./images/60466166-d2ad-44ba-91ed-c9d5849bd5e7.jpg)](http://g.adspeed.net/img/154790.1393723536.jpg)
-
 #  Mu Shu Vegetables
 
-Uncategorized
-
-  
 **Prep** 30 minutes  
 **Cook** 15 minutes  
-**Makes** 2
+**Makes** 2   
 **Source:** [Vegweb.com](http://www.vegweb.com/recipes/mu-shu-vegetables)
 
 ###  Ingredients
 
-  *  
-**1** package mu shu pancakes (check these for fat content first)
-  * a few wood ear or cloud ear mushrooms, soaked in hot water for 30 minutes and then cut into thin strips
-  *   
-**2** cloves garlic, minced
-  *   
-**1** large onion, cut into very thin wedges
-  *   
-**1** small head green cabbage, finely shredded
-  *   
-**1** small carrot, shredded
-  *   
-**4** oz can mushrooms, drained (or equivalent fresh, sauteed in water)
-  *   
-**3-4** green onions, cut into 2 inch pieces
+  *  **1** package mu shu pancakes (check these for fat content first) a few wood ear or cloud ear mushrooms, soaked in hot water for 30 minutes and then cut into thin strips
+  *   **2** cloves garlic, minced
+  *   **1** large onion, cut into very thin wedges
+  *   **1** small head green cabbage, finely shredded
+  *   **1** small carrot, shredded
+  *   **4** oz can mushrooms, drained (or equivalent fresh, sauteed in water)
+  *   **3-4** green onions, cut into 2 inch pieces
   * Soy sauce or tamari to taste
   * Hosin sauce
 
