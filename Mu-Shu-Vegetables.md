@@ -1,17 +1,11 @@
-﻿
-
 #  Mu-Shu-Vegetables
 
-Uncategorized
-
   
-**Source:** [Fatfree.com](http://www.fatfree.com/recipes/chinese/mu-shu-
-vegetables)
+**Source:** [Fatfree.com](http://www.fatfree.com/recipes/chinese/mu-shu-vegetables)
 
 ###  Ingredients
 
-  *  
-**1** package mu shu pancakes (check these for fat content first)
+  *  **1** package mu shu pancakes (check these for fat content first)
   * a few wood ear or cloud ear mushrooms, soaked in hot water for 30 minutes
   * and then cut into thin strips
   *   
