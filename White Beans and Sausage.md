@@ -16,9 +16,9 @@
   *   **3** teaspoons kosher salt
   *   **4** black peppercorns
   * OR
-  *   **4 15** -ounce cans cannellini beans
+  *   **4 15** -ounce cans cannellini beans  
 
-
+After the beans
   *   **5** tablespoons extra olive oil
   *   **1 1/2** pounds sweet Italian sausage
   *   **4** cloves garlic, peeled and crushed
