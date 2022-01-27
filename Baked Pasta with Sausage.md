@@ -1,14 +1,12 @@
-﻿
-
 ![](./images/0d1ba62e-64ba-4531-9ff6-a3d5bc7749ae.jpg)
 
 #  Baked Pasta with Sausage
 
-Uncategorized
-
- **Prep** 15 **Cook** 45 **Makes** 4 **Difficulty** Medium
-**Source**<https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-
-with-sausage-and-ricotta>
+ **Prep** 15  
+ **Cook** 45  
+ **Makes** 4  
+ **Difficulty** Medium
+**Source**<https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-with-sausage-and-ricotta>
 
 ###  Ingredients
 
