@@ -1,39 +1,23 @@
-﻿
-
-[![](./images/6101e67f-052a-4f2d-8b94-bf0e6cdb06f4.jpg)](https://www.italianfoodforever.com/wp-
-content/uploads/2016/05/carbonarapie3-200x200.jpg)
+[![](./images/6101e67f-052a-4f2d-8b94-bf0e6cdb06f4.jpg)](https://www.italianfoodforever.com/wp-content/uploads/2016/05/carbonarapie3-200x200.jpg)
 
 #  Spaghetti Carbonara Pie
 
-Uncategorized
-
-  
 **Prep** 15 minutes  
 **Cook** 40 minutes  
-**Makes** Serves 8
-**Source:** [Italianfoodforever.com](https://www.italianfoodforever.com/2016/06/spaghetti-
-carbonara-pie/)
+**Makes** Serves 8  
+**Source:** [Italianfoodforever.com](https://www.italianfoodforever.com/2016/06/spaghetti-carbonara-pie/)
 
 ###  Ingredients
 
-  *  
-**1** Pound Dried Spaghetti
-  *   
-**1** Cup Milk
-  *   
-**1/2** Cup Heavy Cream
-  *   
-**3** Large Eggs
-  *   
-**2** Teaspoons Black Pepper
-  *   
-**1** Teaspoon Salt
-  *   
-**10** Ounces Grated Aged Pecorino Romano Cheese, Divided
-  *   
-**6** Ounces Shredded Fontina Cheese
-  *   
-**3/4** Cup Diced Pancetta, Cooked Until Golden Brown
+  *  **1** Pound Dried Spaghetti
+  *   **1** Cup Milk
+  *   **1/2** Cup Heavy Cream
+  *   **3** Large Eggs
+  *   **2** Teaspoons Black Pepper
+  *   **1** Teaspoon Salt
+  *   **10** Ounces Grated Aged Pecorino Romano Cheese, Divided
+  *   **6** Ounces Shredded Fontina Cheese
+  *   **3/4** Cup Diced Pancetta, Cooked Until Golden Brown
 
 ###  Directions
 
