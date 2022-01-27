@@ -1,6 +1,6 @@
 ﻿
 
-[![]./images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
+[![](./images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
 
 #  Bison Chili
 
