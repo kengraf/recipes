@@ -1,4 +1,3 @@
-[![](./images/8e0e53ff-5646-404a-93d6-15cbb4abf970.jpg)]
 
 #  Roasted Christmas Goose
 
