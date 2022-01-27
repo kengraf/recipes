@@ -6,7 +6,7 @@
 
 **Prep** 15 mins  
 **Cook** 3 hrs  
-**Source: **[Cafedelites.com](https://cafedelites.com/wprm_print/49336)
+**Source:** [Cafedelites.com](https://cafedelites.com/wprm_print/49336)
 
 ###  Ingredients
 
