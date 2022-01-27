@@ -2,7 +2,7 @@
 
 **Cook** 30  
 **Makes** 4  
-**Source:** [https://cooking.nytimes.com/recipes/1020732-spicy-sesame-noodles-with-chicken-and-peanuts?algo=cooking_doc2vec_weight_1&fellback;=false&imp;_id=341693840&action;=click&module;=RecirculationRibbon&pgType;=recipedetails&rank;=12](https://cooking.nytimes.com/recipes/1020732-spicy-sesame-noodles-with-chicken-and-peanuts?algo=cooking_doc2vec_weight_1&fellback=false&imp_id=341693840&action=click&module=RecirculationRibbon&pgType=recipedetails&rank=12)
+**Source:** [nytimes](https://cooking.nytimes.com/recipes/1020732-spicy-sesame-noodles-with-chicken-and-peanuts?algo=cooking_doc2vec_weight_1&fellback=false&imp_id=341693840&action=click&module=RecirculationRibbon&pgType=recipedetails&rank=12)
 
 ###  Ingredients
 
