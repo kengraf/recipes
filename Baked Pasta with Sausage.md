@@ -1,49 +1,30 @@
-﻿
-
 ![](./images/0d1ba62e-64ba-4531-9ff6-a3d5bc7749ae.jpg)
 
 #  Baked Pasta with Sausage
 
-Uncategorized
-
-  
 **Prep** 15  
 **Cook** 45  
 **Makes** 4  
 **Difficulty** Medium
-**Source:** <https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-
-with-sausage-and-ricotta>
+**Source:** <https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-with-sausage-and-ricotta>
 
 ###  Ingredients
 
-  *  
-**3** tablespoons extra-virgin olive oil
-  *   
-**¾** pound bulk hot or mild Italian sausage (pork, chicken or turkey)
-  *   
-**4** garlic cloves, thinly sliced
-  *   
-**1** teaspoon dried oregano
-  *   
-**½** teaspoon fennel seeds, coarsely crushed
+  *  **3** tablespoons extra-virgin olive oil
+  *  **¾** pound bulk hot or mild Italian sausage (pork, chicken or turkey)
+  *  **4** garlic cloves, thinly sliced
+  *  **1** teaspoon dried oregano
+  *  **½** teaspoon fennel seeds, coarsely crushed
   * Pinch of red-pepper flakes, plus more for serving (optional)
-  *   
-**1** (28-ounce) can whole peeled tomatoes with their juices
-  *   
-**1** (14-ounce) can crushed or strained tomatoes
-  *   
-**2** bay leaves
+  *  **1** (28-ounce) can whole peeled tomatoes with their juices
+  *  **1** (14-ounce) can crushed or strained tomatoes
+  *  **2** bay leaves
   * Kosher salt
-  *   
-**12** ounces dried pasta, such as small shells, farfalle or other shaped pasta
-  *   
-**8** ounces fresh mozzarella, torn into bite-size pieces
-  *   
-**6** ounces whole-milk ricotta (about 3/4 cup)
-  *   
-**⅓** cup grated Parmesan
-  *   
-**¼** cup basil leaves
+  *  **12** ounces dried pasta, such as small shells, farfalle or other shaped pasta
+  *  **8** ounces fresh mozzarella, torn into bite-size pieces
+  *  **6** ounces whole-milk ricotta (about 3/4 cup)
+  *  **⅓** cup grated Parmesan
+  *  **¼** cup basil leaves
   * Black pepper, for serving
 
 ###  Directions
