@@ -1,61 +1,35 @@
-﻿
-
-[![](./images/eaaf442c-0db1-40b5-b737-b8f5ddae253e.jpg)](https://prods3.imgix.net/images/articles/2018_01/non-
-feature-osso-buco-veal-recipe-simone-
-falco.jpg?auto=format%2Ccompress&ixjsv=2.2.3&w=600)
+[![](./images/eaaf442c-0db1-40b5-b737-b8f5ddae253e.jpg)](https://prods3.imgix.net/images/articles/2018_01/non-feature-osso-buco-veal-recipe-simone-falco.jpg?auto=format%2Ccompress&ixjsv=2.2.3&w=600)
 
 #  Classic Italian Veal Osso Buco
 
-Uncategorized
 
-  
 **Prep** 15 minutes  
 **Cook** 4 hours ad 45 minutes  
-**Makes** Yield: 6
-servings
-**Source:** [Tastingtable.com](https://www.tastingtable.com/cook/recipes/osso-
-bucco-veal-italian-recipe)
+**Makes** Yield: 6 servings  
+**Source:** [Tastingtable.com](https://www.tastingtable.com/cook/recipes/osso-bucco-veal-italian-recipe)
 
 ###  Ingredients
 
-  *  
-**3** pounds veal osso bucco center cuts (6 pieces)
+  *  **3** pounds veal osso bucco center cuts (6 pieces)
   * Salt and pepper, to taste
-  *   
-**¼** cup all-purpose flour
+  *  **¼** cup all-purpose flour
   * Olive oil, as needed
-  *   
-**1** sprig fresh rosemary
-  *   
-**1** sprig fresh thyme
-  *   
-**1** bay leaf
-  *   
-**½** cup extra virgin olive oil
-  *   
-**1** large white onion, chopped
-  *   
-**3** celery stalks, chopped
-  *   
-**3** large carrots, chopped
-  *   
-**1** tablespoon tomato paste
-  *   
-**1** cup red wine
-  *   
-**3** cups vegetable stock
-  *   
-**1** pound polenta
-  *   
-**1** bunch spring onions
-  *   
-**1** bunch basil
-  *   
-**2** lemons, zested
-  *   
-**1** cup grated fontina
-  *   
-**2** tablespoons butter
+  *  **1** sprig fresh rosemary
+  *  **1** sprig fresh thyme
+  *  **1** bay leaf
+  *  **½** cup extra virgin olive oil
+  *  **1** large white onion, chopped
+  *  **3** celery stalks, chopped
+  *  **3** large carrots, chopped
+  *  **1** tablespoon tomato paste
+  *  **1** cup red wine
+  *  **3** cups vegetable stock
+  *  **1** pound polenta
+  *   **1** bunch spring onions
+  *   **1** bunch basil
+  *   **2** lemons, zested
+  *   **1** cup grated fontina
+  *   **2** tablespoons butter
   * Pinch of sugar
 
 ###  Directions
