@@ -26,17 +26,11 @@
 
 Drain the pineapple, reserve the juice and set aside.
 
-Place the vegetables, except the broccoli, in a large pot or wok with
+Place the vegetables, except the broccoli, in a large pot or wok with 1/2 cup of the water and the garlic and ginger. Saute for 5 minutes. Add
 
-1/2 cup of the water and the garlic and ginger. Saute for 5 minutes. Add
-
-the broccoli and the remaining 1/2 cup water. Stir, then cover and cook
-
-over low heat for 5 minutes.
+the broccoli and the remaining 1/2 cup water. Stir, then cover and cook over low heat for 5 minutes.
 
 Combine the sauce ingredients in a separate bowl.
 
-Stir in the pineapple chunks and the sauce mixture. Cook, stirring until
-
-thickened.
+Stir in the pineapple chunks and the sauce mixture. Cook, stirring until thickened.
 
