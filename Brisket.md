@@ -34,3 +34,6 @@ to the top of the pan. Cover with lid and turn down to a simmer.
 
 5\. Slice and serve brisket immediately; it’s great with rice.
 
+### Note for French Onion Soup
+Remaining onions and broth make a great base for soup.  
+Heat the broiler, and arrange individual ovenproof casseroles on a baking sheet. Ladle soup into casseroles, and cover top with bread slices. Sprinkle each casserole generously with Gruyère. Broil for a minute or two, watching carefully, until cheese melts and browns. Serve immediately.
