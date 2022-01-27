@@ -1,4 +1,4 @@
-![empanadas](./images/chicken-empanadas-recipe-3-650x975.jpg)
+![empanadas](./images/chicken-empanadas-recipe-3-650x975.jpg =200x200)
 
 ## INGREDIENTS
 - 1 package (8 ounces) cream cheese, softened
