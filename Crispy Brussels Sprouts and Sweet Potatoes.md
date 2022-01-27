@@ -1,34 +1,21 @@
-﻿
-
 [![](./images/af98ef14-e78f-4db2-b4fd-2e3af9006e52.jpg)](http://jessicaseinfeld.com/assets/uploads/recipes/517/dscf3097__hero.jpg)
 
 #  Crispy Brussels Sprouts and Sweet Potatoes
 
-Uncategorized
-
-  
 **Prep** 15 minutes  
 **Cook** 40 minutes  
-**Makes** Serves 4
-**Source:** [Jessicaseinfeld.com](http://jessicaseinfeld.com/recipes/crispy-
-brussels-sprouts-and-sweet-potatoes)
+**Makes** Serves 4  
+**Source:** [Jessicaseinfeld.com](http://jessicaseinfeld.com/recipes/crispy-brussels-sprouts-and-sweet-potatoes)
 
 ###  Ingredients
 
-  *  
-**1** pound Brussels sprouts
-  *   
-**1** sweet potato (about 8 ounces)
-  *   
-**2** cloves garlic, chopped
-  *   
-**2** tablespoons extra virgin olive oil
-  *   
-**½** teaspoon kosher salt
-  *   
-**¼** teaspoon crushed red pepper flakes
-  *   
-**¼** teaspoon freshly ground black pepper
+  *  **1** pound Brussels sprouts
+  *   **1** sweet potato (about 8 ounces)
+  *   **2** cloves garlic, chopped
+  *   **2** tablespoons extra virgin olive oil
+  *   **½** teaspoon kosher salt
+  *   **¼** teaspoon crushed red pepper flakes
+  *   **¼** teaspoon freshly ground black pepper
 
 ###  Directions
 
