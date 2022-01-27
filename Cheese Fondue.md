@@ -5,8 +5,7 @@
 **Prep** 30 min  
 **Cook** 30 min  
 **Makes** 6 servings  
-**Source:** [Epicurious.com](http://www.epicurious.com/recipes/food/views/cheese-
-fondue-231492)
+**Source:** [Epicurious.com](http://www.epicurious.com/recipes/food/views/cheese-fondue-231492)
 
 ###  Ingredients
 
