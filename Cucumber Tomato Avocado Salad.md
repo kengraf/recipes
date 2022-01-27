@@ -7,21 +7,33 @@ content/uploads/2015/06/Cucumber-tomato-avocado-salad-6-300x450.jpg)
 
 Uncategorized
 
- **Prep** 15 mins **Cook** 15 mins **Makes** Serving: 4 **Difficulty** Easy
-**Source**[Natashaskitchen.com](http://natashaskitchen.com/2015/06/01/cucumber-
+  
+**Prep** 15 mins  
+**Cook** 15 mins  
+**Makes** Serving: 4  
+**Difficulty** Easy
+**Source:** [Natashaskitchen.com](http://natashaskitchen.com/2015/06/01/cucumber-
 tomato-avocado-salad/)
 
 ###  Ingredients
 
-  * **1** lb Roma tomatoes
-  *  **1** English cucumber
-  *  **½** medium red onion, sliced
-  *  **2** avocados, diced
-  *  **2** Tbsp extra virgin olive oil or sunflower oil
+  *  
+**1** lb Roma tomatoes
+  *   
+**1** English cucumber
+  *   
+**½** medium red onion, sliced
+  *   
+**2** avocados, diced
+  *   
+**2** Tbsp extra virgin olive oil or sunflower oil
   * Juice of 1 medium lemon (about 2 Tbsp)
-  *  **¼** cup (1/2 bunch) cilantro, chopped
-  *  **1** tsp sea salt or ¾ tsp table salt
-  *  **⅛** tsp black pepper
+  *   
+**¼** cup (1/2 bunch) cilantro, chopped
+  *   
+**1** tsp sea salt or ¾ tsp table salt
+  *   
+**⅛** tsp black pepper
 
 ###  Directions
 

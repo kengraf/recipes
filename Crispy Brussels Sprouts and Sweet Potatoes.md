@@ -6,19 +6,29 @@
 
 Uncategorized
 
- **Prep** 15 minutes **Cook** 40 minutes **Makes** Serves 4
-**Source**[Jessicaseinfeld.com](http://jessicaseinfeld.com/recipes/crispy-
+  
+**Prep** 15 minutes  
+**Cook** 40 minutes  
+**Makes** Serves 4
+**Source:** [Jessicaseinfeld.com](http://jessicaseinfeld.com/recipes/crispy-
 brussels-sprouts-and-sweet-potatoes)
 
 ###  Ingredients
 
-  * **1** pound Brussels sprouts
-  *  **1** sweet potato (about 8 ounces)
-  *  **2** cloves garlic, chopped
-  *  **2** tablespoons extra virgin olive oil
-  *  **½** teaspoon kosher salt
-  *  **¼** teaspoon crushed red pepper flakes
-  *  **¼** teaspoon freshly ground black pepper
+  *  
+**1** pound Brussels sprouts
+  *   
+**1** sweet potato (about 8 ounces)
+  *   
+**2** cloves garlic, chopped
+  *   
+**2** tablespoons extra virgin olive oil
+  *   
+**½** teaspoon kosher salt
+  *   
+**¼** teaspoon crushed red pepper flakes
+  *   
+**¼** teaspoon freshly ground black pepper
 
 ###  Directions
 

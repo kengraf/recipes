@@ -4,14 +4,18 @@
 
 Uncategorized
 
- **Cook** 1 hour 30 minutes **Makes** Yield 8 servings
-**Source**[Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1014406-roasted-
+  
+**Cook** 1 hour 30 minutes  
+**Makes** Yield 8 servings
+**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1014406-roasted-
 root-vegetables)
 
 ###  Ingredients
 
-  * **3** pounds assorted root vegetables: carrots, parsnips, celeriac, potatoes, turnips, etc.
-  *  **¼** cup olive oil
+  *  
+**3** pounds assorted root vegetables: carrots, parsnips, celeriac, potatoes, turnips, etc.
+  *   
+**¼** cup olive oil
   * Salt and black pepper
   * Chopped rosemary, thyme or parsley, plus more for garnish
 

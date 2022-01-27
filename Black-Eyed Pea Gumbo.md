@@ -7,22 +7,35 @@ allrecipes.com/userphotos/250x250/160914.jpg)
 
 Uncategorized
 
- **Prep** 15 m **Cook** 55 m **Makes** 8
-**Source**[Allrecipes.com](http://allrecipes.com/recipe/78454/black-eyed-pea-
+  
+**Prep** 15 m  
+**Cook** 55 m  
+**Makes** 8
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/78454/black-eyed-pea-
 gumbo/?internalSource=search%20result&referringContentType=search%20results)
 
 ###  Ingredients
 
-  * **1** tablespoon olive oil
-  *  **1** medium onion, chopped
-  *  **1** medium green bell pepper, chopped
-  *  **5** stalks celery, chopped
-  *  **2** cups chicken broth
-  *  **1** cup brown rice
-  *  **4** (15 ounce) cans black-eyed peas with liquid
-  *  **1** (10 ounce) can diced tomatoes and green chiles
-  *  **1** (14.5 ounce) can diced tomatoes
-  *  **2** cloves garlic, finely chopped
+  *  
+**1** tablespoon olive oil
+  *   
+**1** medium onion, chopped
+  *   
+**1** medium green bell pepper, chopped
+  *   
+**5** stalks celery, chopped
+  *   
+**2** cups chicken broth
+  *   
+**1** cup brown rice
+  *   
+**4** (15 ounce) cans black-eyed peas with liquid
+  *   
+**1** (10 ounce) can diced tomatoes and green chiles
+  *   
+**1** (14.5 ounce) can diced tomatoes
+  *   
+**2** cloves garlic, finely chopped
 
 ###  Directions
 

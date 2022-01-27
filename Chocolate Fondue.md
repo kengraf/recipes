@@ -7,13 +7,18 @@ content/uploads/2008/02/chocolate-fondue-horiz-640.jpg)
 
 Uncategorized
 
- **Prep** 5 minutes **Cook** 10 minutes **Makes** Serves 8
-**Source**[Simplyrecipes.com](http://www.simplyrecipes.com/recipes/chocolate_fondue/)
+  
+**Prep** 5 minutes  
+**Cook** 10 minutes  
+**Makes** Serves 8
+**Source:** [Simplyrecipes.com](http://www.simplyrecipes.com/recipes/chocolate_fondue/)
 
 ###  Ingredients
 
-  * **12** ounces of milk or dark chocolate (chips or roughly chopped if from a block)
-  *  **1** cup (8 ounces) of heavy whipping cream
+  *  
+**12** ounces of milk or dark chocolate (chips or roughly chopped if from a block)
+  *   
+**1** cup (8 ounces) of heavy whipping cream
   * A pinch of salt
   * Dip-ables such as strawberries, banana pieces cut into 1-inch chunks, dried appricots, candied ginger, apple pieces
 

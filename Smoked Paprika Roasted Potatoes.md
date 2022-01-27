@@ -7,18 +7,27 @@ Paprika-Roasted-Potatoes.jpg)
 
 Uncategorized
 
- **Prep** 10 minutes **Cook** 25 minutes **Makes** Servings: 6
-**Source**[Toriavey.com](http://toriavey.com/toris-kitchen/2013/02/smoked-
+  
+**Prep** 10 minutes  
+**Cook** 25 minutes  
+**Makes** Servings: 6
+**Source:** [Toriavey.com](http://toriavey.com/toris-kitchen/2013/02/smoked-
 paprika-roasted-potatoes/)
 
 ###  Ingredients
 
-  * **2** lbs. red potatoes
-  *  **1 1/2** tbsp extra virgin olive oil
-  *  **1 1/4** tsp smoked paprika
-  *  **1** clove fresh garlic, minced very fine
-  *  **3/4** tsp salt
-  *  **1/4** tsp black pepper
+  *  
+**2** lbs. red potatoes
+  *   
+**1 1/2** tbsp extra virgin olive oil
+  *   
+**1 1/4** tsp smoked paprika
+  *   
+**1** clove fresh garlic, minced very fine
+  *   
+**3/4** tsp salt
+  *   
+**1/4** tsp black pepper
   * Nonstick cooking oil spray (or a little more olive oil), for greasing the baking sheet
   * YOU WILL ALSO NEED
   * baking sheet, gallon-sized plastic zipper bag

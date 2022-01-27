@@ -4,43 +4,57 @@
 
 Uncategorized
 
- **Cook** 40 minutes **Makes** 2 **Difficulty** Easy
+  
+**Cook** 40 minutes  
+**Makes** 2  
+**Difficulty** Easy
 
 ###  Ingredients
 
   
 
-  * **1** tbsp olive oil
+  *  
+**1** tbsp olive oil
   
 
-  *  **1** small, sweet onion, peeled and chopped
+  *   
+**1** small, sweet onion, peeled and chopped
   
 
-  *  **1** cup carrots, peeled and diced
+  *   
+**1** cup carrots, peeled and diced
   
 
-  *  **1** stalk celery, chopped
+  *   
+**1** stalk celery, chopped
   
 
-  *  **1/2** cups lentils
+  *   
+**1/2** cups lentils
   
 
-  *  **2** cups chicken or turkey broth
+  *   
+**2** cups chicken or turkey broth
   
 
-  *  **1** cups cooked turkey, chopped
+  *   
+**1** cups cooked turkey, chopped
   
 
-  *  **1** tsp curry powder
+  *   
+**1** tsp curry powder
   
 
-  *  **1/3** tsp turmeric
+  *   
+**1/3** tsp turmeric
   
 
-  *  **1/2** tsp Kosher salt
+  *   
+**1/2** tsp Kosher salt
   
 
-  *  **1/3** tsp fresh ground black pepper
+  *   
+**1/3** tsp fresh ground black pepper
 
 ###  Directions
 

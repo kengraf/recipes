@@ -7,19 +7,30 @@ content/uploads/2016/09/Frontpage-page-001.jpg)
 
 Uncategorized
 
- **Prep** 12 hours **Cook** 20 min **Makes** 4 **Difficulty** Easy
-**Source**[Foodanddrink.scotsman.com](http://foodanddrink.scotsman.com/recipes/traditional-
+  
+**Prep** 12 hours  
+**Cook** 20 min  
+**Makes** 4  
+**Difficulty** Easy
+**Source:** [Foodanddrink.scotsman.com](http://foodanddrink.scotsman.com/recipes/traditional-
 scottish-recipe-pinhead-oat-porridge/)
 
 ###  Ingredients
 
-  * **2.5** cups of pinhead oatmeal
-  *  **1** cup of milk
-  *  **1.5** tbls of butter
-  *  **3** tbls of powered sugar
-  *  **1** pinch of ground nutmeg
-  *  **1** pinch of ground cinnamon
-  *  **3** tbls of double cream
+  *  
+**2.5** cups of pinhead oatmeal
+  *   
+**1** cup of milk
+  *   
+**1.5** tbls of butter
+  *   
+**3** tbls of powered sugar
+  *   
+**1** pinch of ground nutmeg
+  *   
+**1** pinch of ground cinnamon
+  *   
+**3** tbls of double cream
 
 ###  Directions
 

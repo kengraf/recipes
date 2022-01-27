@@ -4,8 +4,10 @@
 
 Uncategorized
 
- **Cook** 30 **Makes** 4
-**Source**[https://cooking.nytimes.com/recipes/1020732-spicy-sesame-noodles-
+  
+**Cook** 30  
+**Makes** 4
+**Source:** [https://cooking.nytimes.com/recipes/1020732-spicy-sesame-noodles-
 with-chicken-and-
 peanuts?algo=cooking_doc2vec_weight_1&fellback;=false&imp;_id=341693840&action;=click&module;=RecirculationRibbon&pgType;=recipedetails&rank;=12](https://cooking.nytimes.com/recipes/1020732-spicy-
 sesame-noodles-with-chicken-and-
@@ -13,16 +15,24 @@ peanuts?algo=cooking_doc2vec_weight_1&fellback=false&imp_id=341693840&action=cli
 
 ###  Ingredients
 
-  * **1 ½** tablespoons red-pepper flakes
-  *  **1 ½** tablespoons low-sodium soy sauce
-  *  **1 ½** teaspoons toasted sesame oil, plus more as needed
+  *  
+**1 ½** tablespoons red-pepper flakes
+  *   
+**1 ½** tablespoons low-sodium soy sauce
+  *   
+**1 ½** teaspoons toasted sesame oil, plus more as needed
   * Kosher salt and black pepper
-  *  **½** cup plus 1 tablespoon neutral oil, like grapeseed or vegetable
-  *  **6** tablespoons roasted, salted peanuts, coarsely chopped
+  *   
+**½** cup plus 1 tablespoon neutral oil, like grapeseed or vegetable
+  *   
+**6** tablespoons roasted, salted peanuts, coarsely chopped
   * Rind of 1/2 orange, peeled into 2- to 3-inch strips
-  *  **1** pound ground chicken
-  *  **10 to 12** ounces ramen or udon noodles, preferably fresh
-  *  **3** tablespoons finely chopped chives
+  *   
+**1** pound ground chicken
+  *   
+**10 to 12** ounces ramen or udon noodles, preferably fresh
+  *   
+**3** tablespoons finely chopped chives
 
 ###  Directions
 

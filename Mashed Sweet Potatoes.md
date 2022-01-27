@@ -8,18 +8,25 @@ potatoes-rs-524071-x.jpg?itok=RgltmIPf)
 
 Uncategorized
 
- **Makes** Yield: 8 servings
-**Source**[Myrecipes.com](http://www.myrecipes.com/recipe/mashed-sweet-
+  
+**Makes** Yield: 8 servings
+**Source:** [Myrecipes.com](http://www.myrecipes.com/recipe/mashed-sweet-
 potatoes-0)
 
 ###  Ingredients
 
-  * **6** sweet potatoes (about 4 pounds), peeled and cut into eighths
-  *  **3** tablespoons honey
-  *  **1/2** cup orange juice
-  *  **1/2** cup sour cream
-  *  **1/4** teaspoon kosher salt
-  *  **1/4** teaspoon ground nutmeg
+  *  
+**6** sweet potatoes (about 4 pounds), peeled and cut into eighths
+  *   
+**3** tablespoons honey
+  *   
+**1/2** cup orange juice
+  *   
+**1/2** cup sour cream
+  *   
+**1/4** teaspoon kosher salt
+  *   
+**1/4** teaspoon ground nutmeg
 
 ###  Directions
 

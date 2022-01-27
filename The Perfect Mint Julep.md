@@ -7,16 +7,23 @@ perfect-mint-julep_s4x3.jpg.rend.sni12col.landscape.jpeg)
 
 Uncategorized
 
- **Prep** 5 min **Cook** 24 hr 30 min **Makes** Yield: 10 to 12 servings
-**Source**[Foodnetwork.com](http://www.foodnetwork.com/recipes/the-perfect-
+  
+**Prep** 5 min  
+**Cook** 24 hr 30 min  
+**Makes** Yield: 10 to 12 servings
+**Source:** [Foodnetwork.com](http://www.foodnetwork.com/recipes/the-perfect-
 mint-julep-recipe.html)
 
 ###  Ingredients
 
-  * **4** cups bourbon
-  *  **2** bunches fresh spearmint
-  *  **1** cup distilled water
-  *  **1** cup granulated sugar
+  *  
+**4** cups bourbon
+  *   
+**2** bunches fresh spearmint
+  *   
+**1** cup distilled water
+  *   
+**1** cup granulated sugar
   * Powdered sugar
 
 ###  Directions

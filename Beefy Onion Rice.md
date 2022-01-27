@@ -8,17 +8,25 @@ cooking.jpg?rev=65367e08a3964d99b794951bcc70aebd&vd=20200628T063721Z&hash=7720C9
 
 Uncategorized
 
- **Prep** 5 min **Cook** 25 min **Makes** 4
-**Source**[Mccormick.com](https://www.mccormick.com/recipes/salads-
+  
+**Prep** 5 min  
+**Cook** 25 min  
+**Makes** 4
+**Source:** [Mccormick.com](https://www.mccormick.com/recipes/salads-
 sides/beefy-onion-rice)
 
 ###  Ingredients
 
-  * **1** tablespoon oil
-  *  **1** cup long grain rice
-  *  **1** chopped fine onion
-  *  **1/2** teaspoon McCormick® Perfect Pinch® Italian Seasoning
-  *  **1** can (14 ounces) beef broth
+  *  
+**1** tablespoon oil
+  *   
+**1** cup long grain rice
+  *   
+**1** chopped fine onion
+  *   
+**1/2** teaspoon McCormick® Perfect Pinch® Italian Seasoning
+  *   
+**1** can (14 ounces) beef broth
 
 ###  Directions
 

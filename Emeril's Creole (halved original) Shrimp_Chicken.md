@@ -6,30 +6,51 @@
 
 Uncategorized
 
- **Prep** 20 minutes **Cook** 1 hour **Makes** Yield: 3 servings
-**Source**[Emerils.com](https://www.emerils.com/127949/emerils-shrimp-creole)
+  
+**Prep** 20 minutes  
+**Cook** 1 hour  
+**Makes** Yield: 3 servings
+**Source:** [Emerils.com](https://www.emerils.com/127949/emerils-shrimp-creole)
 
 ###  Ingredients
 
-  * **2** ounces (1/2 stick) unsalted butter
-  *  **1** cups chopped onions
-  *  **1/2** cup chopped green bell pepper
-  *  **1/2** cup chopped celery
-  *  **1/2** teaspoon salt
-  *  **1/4** teaspoon cayenne pepper
-  *  **1** bay leaves
+  *  
+**2** ounces (1/2 stick) unsalted butter
+  *   
+**1** cups chopped onions
+  *   
+**1/2** cup chopped green bell pepper
+  *   
+**1/2** cup chopped celery
+  *   
+**1/2** teaspoon salt
+  *   
+**1/4** teaspoon cayenne pepper
+  *   
+**1** bay leaves
   * one-half 14.5-ounce can diced tomatoes
-  *  **1** teaspoon chopped garlic
-  *  **1/2** teaspoon Worcestershire Sauce
-  *  **1/2** teaspoon hot sauce,or to taste
-  *  **1** tablespoons all-purpose flour
-  *  **1/2** cup water
-  *  **1/2** cup shrimp stock
-  *  **1** pounds peeled and deveined large shrimp
-  *  **1** teaspoon Emeril's Essence Creole Seasoning
-  *  **1/4** cup chopped green onions
-  *  **1** tablespoons chopped parsley
-  *  **4** cups cooked long-grain white rice
+  *   
+**1** teaspoon chopped garlic
+  *   
+**1/2** teaspoon Worcestershire Sauce
+  *   
+**1/2** teaspoon hot sauce,or to taste
+  *   
+**1** tablespoons all-purpose flour
+  *   
+**1/2** cup water
+  *   
+**1/2** cup shrimp stock
+  *   
+**1** pounds peeled and deveined large shrimp
+  *   
+**1** teaspoon Emeril's Essence Creole Seasoning
+  *   
+**1/4** cup chopped green onions
+  *   
+**1** tablespoons chopped parsley
+  *   
+**4** cups cooked long-grain white rice
 
 ###  Directions
 

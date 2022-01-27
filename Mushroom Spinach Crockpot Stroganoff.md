@@ -7,25 +7,39 @@ content/uploads/2015/03/Mushroom-Spinach-Crockpot-Stroganoff-copy.jpg)
 
 Uncategorized
 
- **Makes** Yields: 6 servings
-**Source**[Newleafwellness.biz](http://newleafwellness.biz/2015/04/15/mushroom-
+  
+**Makes** Yields: 6 servings
+**Source:** [Newleafwellness.biz](http://newleafwellness.biz/2015/04/15/mushroom-
 spinach-crockpot-stroganoff/)
 
 ###  Ingredients
 
-  * **1** tablespoon butter
-  *  **10** oz baby portobello mushrooms; quartered
-  *  **12** oz white mushrooms; quartered
-  *  **1** medium onion; diced
-  *  **2** cloves of garlic; minced
-  *  **1/2** cup broth (vegetable, chicken or beef)
-  *  **8** oz sour cream (1 cup)
-  *  **2** tablespoons ketchup
-  *  **1** teaspoon Worcestershire sauce
-  *  **1/2** teaspoon black pepper
-  *  **1.5** teaspoons paprika
-  *  **8** oz cream cheese
-  *  **2.5** oz fresh baby spinach (about 4 cups)
+  *  
+**1** tablespoon butter
+  *   
+**10** oz baby portobello mushrooms; quartered
+  *   
+**12** oz white mushrooms; quartered
+  *   
+**1** medium onion; diced
+  *   
+**2** cloves of garlic; minced
+  *   
+**1/2** cup broth (vegetable, chicken or beef)
+  *   
+**8** oz sour cream (1 cup)
+  *   
+**2** tablespoons ketchup
+  *   
+**1** teaspoon Worcestershire sauce
+  *   
+**1/2** teaspoon black pepper
+  *   
+**1.5** teaspoons paprika
+  *   
+**8** oz cream cheese
+  *   
+**2.5** oz fresh baby spinach (about 4 cups)
 
 ###  Directions
 

@@ -7,25 +7,41 @@ allrecipes.com/userphotos/720x405/490284.jpg)
 
 Uncategorized
 
- **Prep** 10 m **Cook** 30 m **Makes** 8
-**Source**[Allrecipes.com](http://allrecipes.com/recipe/16641/red-lentil-
+  
+**Prep** 10 m  
+**Cook** 30 m  
+**Makes** 8
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/16641/red-lentil-
 curry/)
 
 ###  Ingredients
 
-  * **2** cups red lentils
-  *  **1** large onion, diced
-  *  **1** tablespoon vegetable oil
-  *  **2** tablespoons curry paste
-  *  **1** tablespoon curry powder
-  *  **1** teaspoon ground turmeric
-  *  **1** teaspoon ground cumin
-  *  **1** teaspoon chili powder
-  *  **1** teaspoon salt
-  *  **1** teaspoon white sugar
-  *  **1** teaspoon minced garlic
-  *  **1** teaspoon minced fresh ginger
-  *  **1** (14.25 ounce) can tomato puree
+  *  
+**2** cups red lentils
+  *   
+**1** large onion, diced
+  *   
+**1** tablespoon vegetable oil
+  *   
+**2** tablespoons curry paste
+  *   
+**1** tablespoon curry powder
+  *   
+**1** teaspoon ground turmeric
+  *   
+**1** teaspoon ground cumin
+  *   
+**1** teaspoon chili powder
+  *   
+**1** teaspoon salt
+  *   
+**1** teaspoon white sugar
+  *   
+**1** teaspoon minced garlic
+  *   
+**1** teaspoon minced fresh ginger
+  *   
+**1** (14.25 ounce) can tomato puree
 
 ###  Directions
 

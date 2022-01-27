@@ -4,23 +4,33 @@
 
 Uncategorized
 
-**Source**[Fatfreevegan.com](http://fatfreevegan.com/blog/2011/02/24/mushroom-
+**Source:** [Fatfreevegan.com](http://fatfreevegan.com/blog/2011/02/24/mushroom-
 and-spinach-stroganoff/)
 
 ###  Ingredients
 
-  * **1** pound of uncooked fettuccine or spaghetti
-  *  **1/3** cup of water
-  *  **1** onion, cut in half lengthwise and then sliced
-  *  **4-5** cups of sliced white mushrooms
-  *  **1 10** -ounce package frozen chopped spinach, defrosted, or 5 ounces fresh spinach, chopped
-  *  **1** cup of veg. broth
-  *  **1** cup soy milk
-  *  **5** Tbs soy sauce
-  *  **2** Tbs white wine
+  *  
+**1** pound of uncooked fettuccine or spaghetti
+  *   
+**1/3** cup of water
+  *   
+**1** onion, cut in half lengthwise and then sliced
+  *   
+**4-5** cups of sliced white mushrooms
+  *   
+**1 10** -ounce package frozen chopped spinach, defrosted, or 5 ounces fresh spinach, chopped
+  *   
+**1** cup of veg. broth
+  *   
+**1** cup soy milk
+  *   
+**5** Tbs soy sauce
+  *   
+**2** Tbs white wine
   * a dash of cayenne pepper
   * freshly ground pepper to taste
-  *  **2** Tbs cornstarch mixed in 1/4 cup of cold water
+  *   
+**2** Tbs cornstarch mixed in 1/4 cup of cold water
 
 ###  Directions
 

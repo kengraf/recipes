@@ -4,18 +4,29 @@
 
 Uncategorized
 
- **Prep** 5 **Cook** 30 **Difficulty** Easy
+  
+**Prep** 5  
+**Cook** 30  
+**Difficulty** Easy
 
 ###  Ingredients
 
-  * **2** pounds (~3 large) sweet potatoes, peeled and cut into 1/2-inch pieces
-  *  **2** tablespoons olive oil
-  *  **3/4** teaspoon fine sea salt (kosher salt; use less if using table salt)
-  *  **1/4** teaspoon freshly cracked pepper
-  *  **1/2** teaspoon ground chili powder*
-  *  **1/2** teaspoon paprika
-  *  **1/2** teaspoon ground cumin
-  *  **1/2** teaspoon garlic powder
+  *  
+**2** pounds (~3 large) sweet potatoes, peeled and cut into 1/2-inch pieces
+  *   
+**2** tablespoons olive oil
+  *   
+**3/4** teaspoon fine sea salt (kosher salt; use less if using table salt)
+  *   
+**1/4** teaspoon freshly cracked pepper
+  *   
+**1/2** teaspoon ground chili powder*
+  *   
+**1/2** teaspoon paprika
+  *   
+**1/2** teaspoon ground cumin
+  *   
+**1/2** teaspoon garlic powder
 
 ###  Directions
 

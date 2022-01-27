@@ -4,20 +4,31 @@
 
 Uncategorized
 
- **Prep** 30 minutes **Makes** 4
+  
+**Prep** 30 minutes  
+**Makes** 4
 
 ###  Ingredients
 
-  * **1** pound large shrimp (preferably tail-on), peeled and deveined
-  *  **2** teaspoons ground coriander
+  *  
+**1** pound large shrimp (preferably tail-on), peeled and deveined
+  *   
+**2** teaspoons ground coriander
   * Kosher salt and black pepper
-  *  **¼** cup fresh lime juice, plus 2 teaspoons lime zest, and 4 lime wedges (from 3 limes)
-  *  **2** tablespoons thinly sliced mint, plus a few mint leaves for garnish
-  *  **1** teaspoon honey
-  *  **1** garlic clove, finely minced
-  *  **½** Fresno chile, finely minced, seeds and ribs removed if desired
-  *  **6** tablespoons extra-virgin olive oil
-  *  **3** cups fresh corn kernels (from about 4 ears)
+  *   
+**¼** cup fresh lime juice, plus 2 teaspoons lime zest, and 4 lime wedges (from 3 limes)
+  *   
+**2** tablespoons thinly sliced mint, plus a few mint leaves for garnish
+  *   
+**1** teaspoon honey
+  *   
+**1** garlic clove, finely minced
+  *   
+**½** Fresno chile, finely minced, seeds and ribs removed if desired
+  *   
+**6** tablespoons extra-virgin olive oil
+  *   
+**3** cups fresh corn kernels (from about 4 ears)
 
 ###  Directions
 

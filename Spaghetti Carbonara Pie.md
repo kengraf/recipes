@@ -8,23 +8,36 @@ Pie_s4x3.jpg.rend.hgtvcom.826.620.suffix/1484341244522.jpeg)
 
 Uncategorized
 
- **Prep** 30 min **Cook** 35 to 40 minutes **Makes** Yield: 8 servings
+  
+**Prep** 30 min  
+**Cook** 35 to 40 minutes  
+**Makes** Yield: 8 servings
 **Difficulty** Easy
-**Source**[Foodnetwork.com](https://www.foodnetwork.com/recipes/spaghetti-
+**Source:** [Foodnetwork.com](https://www.foodnetwork.com/recipes/spaghetti-
 carbonara-pie-3569348)
 
 ###  Ingredients
 
-  * **1** tablespoon butter
-  *  **8** ounces pancetta
-  *  **1 1/2** teaspoons coarse or kosher salt, plus more for the cooking water
-  *  **1** bunch broccoli rabe
-  *  **1** pound dried spaghetti
-  *  **2** large eggs
-  *  **2 to 3** large yolks
-  *  **1 1/4** cups whole milk
-  *  **1** teaspoon black pepper
-  *  **8** ounces (about 2 cups) finely grated Parmesan and/or aged Pecorino-Romano
+  *  
+**1** tablespoon butter
+  *   
+**8** ounces pancetta
+  *   
+**1 1/2** teaspoons coarse or kosher salt, plus more for the cooking water
+  *   
+**1** bunch broccoli rabe
+  *   
+**1** pound dried spaghetti
+  *   
+**2** large eggs
+  *   
+**2 to 3** large yolks
+  *   
+**1 1/4** cups whole milk
+  *   
+**1** teaspoon black pepper
+  *   
+**8** ounces (about 2 cups) finely grated Parmesan and/or aged Pecorino-Romano
 
 ###  Directions
 

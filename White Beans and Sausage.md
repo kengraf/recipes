@@ -8,25 +8,40 @@ beans-sausage-horiz-a-1600-aecd4e3b589548cea049bf3f11c93540.jpg)
 
 Uncategorized
 
- **Prep** 5 mins **Cook** 20 mins **Makes** Servings 4 to 8 servings
-**Source**[Simplyrecipes.com](https://www.simplyrecipes.com/recipes/white_beans_and_sausage/)
+  
+**Prep** 5 mins  
+**Cook** 20 mins  
+**Makes** Servings 4 to 8 servings
+**Source:** [Simplyrecipes.com](https://www.simplyrecipes.com/recipes/white_beans_and_sausage/)
 
 ###  Ingredients
 
-  * **1** pound dried cannellini beans
-  *  **2** tablespoons extra virgin olive oil
-  *  **4-5** fresh sage leaves
-  *  **2** cloves garlic, crushed
-  *  **3** teaspoons kosher salt
-  *  **4** black peppercorns
+  *  
+**1** pound dried cannellini beans
+  *   
+**2** tablespoons extra virgin olive oil
+  *   
+**4-5** fresh sage leaves
+  *   
+**2** cloves garlic, crushed
+  *   
+**3** teaspoons kosher salt
+  *   
+**4** black peppercorns
   * OR
-  *  **4 15** -ounce cans cannellini beans
-  *  **5** tablespoons extra olive oil
-  *  **1 1/2** pounds sweet Italian sausage
-  *  **4** cloves garlic, peeled and crushed
-  *  **3-4** canned plum tomatoes, chopped
+  *   
+**4 15** -ounce cans cannellini beans
+  *   
+**5** tablespoons extra olive oil
+  *   
+**1 1/2** pounds sweet Italian sausage
+  *   
+**4** cloves garlic, peeled and crushed
+  *   
+**3-4** canned plum tomatoes, chopped
   * Pinch red pepper flakes
-  *  **1** cup tomato purée
+  *   
+**1** cup tomato purée
   * Salt (about 2 teaspoons) and freshly ground black pepper
 
 ###  Directions

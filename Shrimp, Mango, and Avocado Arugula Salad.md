@@ -7,19 +7,29 @@ arugula-salad.JPG)
 
 Uncategorized
 
- **Cook** 0:06 **Makes** Serves: 4 **Difficulty** Easy
-**Source**[Delish.com](http://www.delish.com/cooking/recipe-
+  
+**Cook** 0:06  
+**Makes** Serves: 4  
+**Difficulty** Easy
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
 ideas/recipes/a42721/shrimp-mango-avocado-arugula-salad/)
 
 ###  Ingredients
 
-  * **1** lb. medium shrimp, peeled and deveined
-  *  **1** tbsp. vegetable oil
-  *  **5** c. arugula
-  *  **1** avocado, sliced
-  *  **1** mango, diced
-  *  **1/2** red onion, sliced
-  *  **1/4** c. extra-virgin olive oil
+  *  
+**1** lb. medium shrimp, peeled and deveined
+  *   
+**1** tbsp. vegetable oil
+  *   
+**5** c. arugula
+  *   
+**1** avocado, sliced
+  *   
+**1** mango, diced
+  *   
+**1/2** red onion, sliced
+  *   
+**1/4** c. extra-virgin olive oil
   * Juice of 2 limes
   * Pinch of sugar
   * Pinch of cumin

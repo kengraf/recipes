@@ -7,23 +7,36 @@ ckn-wedge-salad-chive-garlic-dressingl2.jpg)
 
 Uncategorized
 
- **Prep** 0:10 **Cook** 0:25 **Makes** Serves: 4 **Difficulty** Easy
-**Source**[Delish.com](http://www.delish.com/cooking/recipe-
+  
+**Prep** 0:10  
+**Cook** 0:25  
+**Makes** Serves: 4  
+**Difficulty** Easy
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
 ideas/recipes/a47576/grilled-chicken-wedge-recipe/)
 
 ###  Ingredients
 
-  * **2** boneless skinless chicken breasts
-  *  **2** tbsp. extra-virgin olive oil, plus more for drizzling
+  *  
+**2** boneless skinless chicken breasts
+  *   
+**2** tbsp. extra-virgin olive oil, plus more for drizzling
   * kosher salt
   * Freshly ground black pepper
-  *  **1/2** c. mayonnaise
-  *  **1** tbsp. red wine vinegar
-  *  **2** cloves garlic, grated
-  *  **1/4** c. diced red onion
-  *  **2** tbsp. minced chives, plus more for garnish
-  *  **1** large head iceberg lettuce, cut into 4 wedges
-  *  **2** avocados, pitted and halved
+  *   
+**1/2** c. mayonnaise
+  *   
+**1** tbsp. red wine vinegar
+  *   
+**2** cloves garlic, grated
+  *   
+**1/4** c. diced red onion
+  *   
+**2** tbsp. minced chives, plus more for garnish
+  *   
+**1** large head iceberg lettuce, cut into 4 wedges
+  *   
+**2** avocados, pitted and halved
 
 ###  Directions
 

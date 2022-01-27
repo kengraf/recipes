@@ -7,19 +7,29 @@ carpaccio-0610-recipe-lgn.jpg)
 
 Uncategorized
 
- **Cook** 0:35 **Makes** Yield: 4 side-dish servings **Difficulty** Easy
-**Source**[Delish.com](http://www.delish.com/cooking/recipe-
+  
+**Cook** 0:35  
+**Makes** Yield: 4 side-dish servings  
+**Difficulty** Easy
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
 ideas/recipes/a30934/zucchini-carpaccio-recipe-ghk0610/)
 
 ###  Ingredients
 
-  * **1** whole lemon
-  *  **2** tbsp. Extra virgin olive oil
-  *  **.13** tsp. salt
-  *  **.13** tsp. Freshly ground black pepper
-  *  **2** large zucchini
-  *  **1** ripe avocado
-  *  **¼** c. salted roasted almonds
+  *  
+**1** whole lemon
+  *   
+**2** tbsp. Extra virgin olive oil
+  *   
+**.13** tsp. salt
+  *   
+**.13** tsp. Freshly ground black pepper
+  *   
+**2** large zucchini
+  *   
+**1** ripe avocado
+  *   
+**¼** c. salted roasted almonds
 
 ###  Directions
 

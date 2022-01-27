@@ -4,17 +4,27 @@
 
 Uncategorized
 
- **Prep** 15 **Cook** 35 **Makes** 4
+  
+**Prep** 15  
+**Cook** 35  
+**Makes** 4
 
 ###  Ingredients
 
-  * **1 ½** lb. mixed wild mushrooms, sliced;
-  *  **2** large shallots, diced;
-  *  **1** tbsp. fresh thyme;
-  *  **7** cups chicken stock;
-  *  **1** cup. coconut milk;
-  *  **3** tbsp. butter;
-  *  **¼** cup parsley, chopped;
+  *  
+**1 ½** lb. mixed wild mushrooms, sliced;
+  *   
+**2** large shallots, diced;
+  *   
+**1** tbsp. fresh thyme;
+  *   
+**7** cups chicken stock;
+  *   
+**1** cup. coconut milk;
+  *   
+**3** tbsp. butter;
+  *   
+**¼** cup parsley, chopped;
   
 
   * Sea salt and freshly ground pepper;

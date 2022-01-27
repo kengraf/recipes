@@ -7,15 +7,19 @@ bdb6-5325d8b2ad87.jpg)](http://3.bp.blogspot.com/-L8hx1r6JApY/T-qhqo0iJGI/AAAAAA
 
 Uncategorized
 
-**Source**[Eatfoodasmuchasyoulikeallplants.blogspot.com](http://eatfoodasmuchasyoulikeallplants.blogspot.com/2012/06/how-
+**Source:** [Eatfoodasmuchasyoulikeallplants.blogspot.com](http://eatfoodasmuchasyoulikeallplants.blogspot.com/2012/06/how-
 to-make-perfectly-browned-home.html)
 
 ###  Ingredients
 
-  * **3-4** medium sized Potatoes
-  *  **1/2** Bell pepper diced
-  *  **1/2** onion diced
-  *  **3-4** cloves of garlic minced
+  *  
+**3-4** medium sized Potatoes
+  *   
+**1/2** Bell pepper diced
+  *   
+**1/2** onion diced
+  *   
+**3-4** cloves of garlic minced
   * A sprig of fresh rosemary coarsely chopped
   * Salt
   * Pepper

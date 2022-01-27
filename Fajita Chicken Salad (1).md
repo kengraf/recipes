@@ -7,24 +7,37 @@ summer-salads-chicken-fajita.jpg)
 
 Uncategorized
 
- **Prep** 0:10 **Cook** 1:00 **Makes** Serves: 4 **Difficulty** Easy
-**Source**[Delish.com](http://www.delish.com/cooking/recipe-
+  
+**Prep** 0:10  
+**Cook** 1:00  
+**Makes** Serves: 4  
+**Difficulty** Easy
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
 ideas/recipes/a47332/fajita-chicken-salad-recipe/)
 
 ###  Ingredients
 
   * Juice of 2 limes
-  *  **1/2** c. extra-virgin olive oil, divided
-  *  **1** tbsp. honey
-  *  **1/2** tsp. cumin
-  *  **1/4** tsp. red chili flakes
+  *   
+**1/2** c. extra-virgin olive oil, divided
+  *   
+**1** tbsp. honey
+  *   
+**1/2** tsp. cumin
+  *   
+**1/4** tsp. red chili flakes
   * kosher salt
   * Freshly ground black pepper
-  *  **2** boneless skinless chicken breasts
-  *  **2** bell peppers, thinly sliced
-  *  **1** white onion, thinly sliced
-  *  **1** large head of romaine, cored and chopped
-  *  **1** avocado, thinly sliced
+  *   
+**2** boneless skinless chicken breasts
+  *   
+**2** bell peppers, thinly sliced
+  *   
+**1** white onion, thinly sliced
+  *   
+**1** large head of romaine, cored and chopped
+  *   
+**1** avocado, thinly sliced
 
 ###  Directions
 

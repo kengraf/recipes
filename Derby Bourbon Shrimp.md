@@ -6,20 +6,27 @@
 
 Uncategorized
 
- **Makes** 10 to 12 servings
-**Source**[Dispatch.com](http://www.dispatch.com/content/stories/food/2015/04/29/derby-
+  
+**Makes** 10 to 12 servings
+**Source:** [Dispatch.com](http://www.dispatch.com/content/stories/food/2015/04/29/derby-
 bourbon-shrimp.html)
 
 ###  Ingredients
 
-  * **1** pound frozen raw shrimp, peeled and deveined (45-50 count), tails removed
-  *  **2** teaspoons extra-virgin olive oil
-  *  **4** teaspoons Cajun seasoning
-  *  **4** teaspoons bourbon
+  *  
+**1** pound frozen raw shrimp, peeled and deveined (45-50 count), tails removed
+  *   
+**2** teaspoons extra-virgin olive oil
+  *   
+**4** teaspoons Cajun seasoning
+  *   
+**4** teaspoons bourbon
   * Salt
   * Pepper
-  *  **1** English (seedless) cucumber, sliced into 1/4-inch rounds
-  *  **1/2** cup sour cream
+  *   
+**1** English (seedless) cucumber, sliced into 1/4-inch rounds
+  *   
+**1/2** cup sour cream
   * Bourbon smoked paprika
 
 ###  Directions

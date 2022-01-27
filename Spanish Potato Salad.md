@@ -7,28 +7,34 @@ Potato-Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
 
 Uncategorized
 
- **Cook** 25 min
-**Source**[Foodnetwork.com](http://www.foodnetwork.com/recipes/food-network-
+  
+**Cook** 25 min
+**Source:** [Foodnetwork.com](http://www.foodnetwork.com/recipes/food-network-
 kitchen/spanish-potato-salad-recipe-2112546)
 
 ###  Ingredients
 
-  * **1 1/2** pounds quartered red-skinned potatoes
-  *  **1/4** cup each
+  *  
+**1 1/2** pounds quartered red-skinned potatoes
+  *   
+**1/4** cup each
   * chopped pimientos
   * celery
   * green olives
   
 
-  *  **2** tablespoons each
+  *   
+**2** tablespoons each
   * chopped parsley
   * sherry vinegar
   * mayonnaise
   
 
-  *  **1** tablespoon each olive oil
+  *   
+**1** tablespoon each olive oil
   * chopped shallot
-  *  **1/4** teaspoon smoked paprika.
+  *   
+**1/4** teaspoon smoked paprika.
   * Season with salt and pepper.
 
 ###  Directions

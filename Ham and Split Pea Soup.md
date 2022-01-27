@@ -7,22 +7,34 @@ allrecipes.com/userphotos/250x250/1508123.jpg)
 
 Uncategorized
 
- **Prep** 20 m **Cook** 1 h 30 m **Makes** 4
-**Source**[Allrecipes.com](http://allrecipes.com/recipe/219170/ham-and-split-
+  
+**Prep** 20 m  
+**Cook** 1 h 30 m  
+**Makes** 4
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/219170/ham-and-split-
 pea-soup-recipe-a-great-
 soup/print/?recipeType=Recipe&servings=8&isMetric=false)
 
 ###  Ingredients
 
-  * **1** tablespoons butter
-  *  **1/4** onion, diced
-  *  **1** ribs celery, diced
-  *  **1 1/2** cloves garlic, sliced
-  *  **1/2** pound ham, diced
-  *  **1** bay leaf
-  *  **1/2** pound dried split peas
-  *  **2** cups chicken stock
-  *  **1** cups water
+  *  
+**1** tablespoons butter
+  *   
+**1/4** onion, diced
+  *   
+**1** ribs celery, diced
+  *   
+**1 1/2** cloves garlic, sliced
+  *   
+**1/2** pound ham, diced
+  *   
+**1** bay leaf
+  *   
+**1/2** pound dried split peas
+  *   
+**2** cups chicken stock
+  *   
+**1** cups water
   * salt and ground black pepper to taste
 
 ###  Directions

@@ -7,33 +7,55 @@ content/uploads/2019/09/pork-shoulder-roast-7-683x1024.jpg)
 
 Uncategorized
 
- **Prep** 25 minutes **Cook** 8 hours **Makes** 8 servings
-**Source**[Fitfoodiefinds.com](https://fitfoodiefinds.com/slow-cooker-pork-
+  
+**Prep** 25 minutes  
+**Cook** 8 hours  
+**Makes** 8 servings
+**Source:** [Fitfoodiefinds.com](https://fitfoodiefinds.com/slow-cooker-pork-
 roast/)
 
 ###  Ingredients
 
-  * **6** medium russet potatoes, quartered
-  *  **1** medium white onion, chopped
-  *  **6** medium carrots, diced into 4 pieces each
-  *  **4** cloves garlic, roughly chopped
-  *  **3** lbs. boneless pork shoulder roast
-  *  **2** tablespoons olive oil
-  *  **6** sprigs rosemary, bundled
-  *  **6** sprigs thyme, bundled
-  *  **2** tablespoons balsamic vinegar
-  *  **1/2** cup red wine
-  *  **1/2** cup chicken broth
+  *  
+**6** medium russet potatoes, quartered
+  *   
+**1** medium white onion, chopped
+  *   
+**6** medium carrots, diced into 4 pieces each
+  *   
+**4** cloves garlic, roughly chopped
+  *   
+**3** lbs. boneless pork shoulder roast
+  *   
+**2** tablespoons olive oil
+  *   
+**6** sprigs rosemary, bundled
+  *   
+**6** sprigs thyme, bundled
+  *   
+**2** tablespoons balsamic vinegar
+  *   
+**1/2** cup red wine
+  *   
+**1/2** cup chicken broth
   * Pork Dry Rub
-  *  **1/4** cup brown sugar
-  *  **1** tablespoon garlic powder
-  *  **2** teaspoons onion powder
-  *  **2** teaspoons coarse salt
-  *  **1** teaspoon cinnamon
-  *  **2** teaspoons dried thyme
-  *  **1** teaspoon pepper
+  *   
+**1/4** cup brown sugar
+  *   
+**1** tablespoon garlic powder
+  *   
+**2** teaspoons onion powder
+  *   
+**2** teaspoons coarse salt
+  *   
+**1** teaspoon cinnamon
+  *   
+**2** teaspoons dried thyme
+  *   
+**1** teaspoon pepper
   * Thickener
-  *  **1.5** tablespoons cornstarch
+  *   
+**1.5** tablespoons cornstarch
 
 ###  Directions
 

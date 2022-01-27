@@ -7,19 +7,30 @@ cobb-salad-2.jpg)
 
 Uncategorized
 
- **Prep** 0:15 **Cook** 0:35 **Makes** Serves: 4 **Difficulty** Easy
-**Source**[Delish.com](http://www.delish.com/cooking/recipe-
+  
+**Prep** 0:15  
+**Cook** 0:35  
+**Makes** Serves: 4  
+**Difficulty** Easy
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
 ideas/recipes/a46115/breaded-chicken-cobb-salad-recipe/)
 
 ###  Ingredients
 
-  * **1** lb. frozen breaded chicken breasts or cutlets
-  *  **1** large head romaine
-  *  **2** c. cherry tomatoes, halved
-  *  **1** c. corn kernels (canned or frozen)
-  *  **1/2** c. crumbled blue cheese
-  *  **1** avocado, diced
-  *  **1/2** lb. bacon, cooked and chopped
+  *  
+**1** lb. frozen breaded chicken breasts or cutlets
+  *   
+**1** large head romaine
+  *   
+**2** c. cherry tomatoes, halved
+  *   
+**1** c. corn kernels (canned or frozen)
+  *   
+**1/2** c. crumbled blue cheese
+  *   
+**1** avocado, diced
+  *   
+**1/2** lb. bacon, cooked and chopped
   * kosher salt
   * Freshly ground black pepper
   * Ranch dressing, for drizzling

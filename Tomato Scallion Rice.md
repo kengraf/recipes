@@ -7,20 +7,31 @@ ssl.com/wp-content/uploads/2015/01/Crow_30D_Shoot-Images-077-200x200.jpg)
 
 Uncategorized
 
- **Prep** 10 minutes **Cook** 25 minutes **Makes** Yield: 6 people
-**Source**[Themom100.com](https://themom100.com/recipe/tomato-scallion-rice/)
+  
+**Prep** 10 minutes  
+**Cook** 25 minutes  
+**Makes** Yield: 6 people
+**Source:** [Themom100.com](https://themom100.com/recipe/tomato-scallion-rice/)
 
 ###  Ingredients
 
-  * **1** tablespoon olive oil
-  *  **½** cup chopped onion
-  *  **1** teaspoon minced garlic
-  *  **4** cups chopped seeded tomatoes
-  *  **1** tablespoon tomato paste
+  *  
+**1** tablespoon olive oil
+  *   
+**½** cup chopped onion
+  *   
+**1** teaspoon minced garlic
+  *   
+**4** cups chopped seeded tomatoes
+  *   
+**1** tablespoon tomato paste
   * Coarse or kosher salt and freshly ground pepper to taste
-  *  **2** cups water
-  *  **1** cup long grain rice
-  *  **1** cup sliced scallions both white and green parts
+  *   
+**2** cups water
+  *   
+**1** cup long grain rice
+  *   
+**1** cup sliced scallions both white and green parts
 
 ###  Directions
 

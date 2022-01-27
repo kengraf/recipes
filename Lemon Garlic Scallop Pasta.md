@@ -7,25 +7,40 @@ content/uploads/2019/02/WGC-Lemon-Scallop-Pasta-copy-2-199x199.jpg)
 
 Uncategorized
 
- **Prep** 10 mins **Cook** 20 mins
-**Source**[Whatsgabycooking.com](https://whatsgabycooking.com/wprm_print/31695)
+  
+**Prep** 10 mins  
+**Cook** 20 mins
+**Source:** [Whatsgabycooking.com](https://whatsgabycooking.com/wprm_print/31695)
 
 ###  Ingredients
 
-  * **1/2** pound linguini
-  *  **1** pound scallops
+  *  
+**1/2** pound linguini
+  *   
+**1** pound scallops
   * Kosher salt and freshly ground black pepper
-  *  **1** tablespoon olive oil plus some for drizzling
-  *  **3** tablespoons butter divided
-  *  **4** cloves garlic chopped
-  *  **1** large shallot finely chopped
-  *  **1/2** teaspoon crushed red pepper flakes
-  *  **4** sprigs fresh thyme leaves removed and chopped
-  *  **1** cup white wine Sauv Blanc
-  *  **1** cup chicken stock
-  *  **1** cup fresh basil torn
-  *  **1/2** cup chopped chives
-  *  **1** lemon zested and juiced
+  *   
+**1** tablespoon olive oil plus some for drizzling
+  *   
+**3** tablespoons butter divided
+  *   
+**4** cloves garlic chopped
+  *   
+**1** large shallot finely chopped
+  *   
+**1/2** teaspoon crushed red pepper flakes
+  *   
+**4** sprigs fresh thyme leaves removed and chopped
+  *   
+**1** cup white wine Sauv Blanc
+  *   
+**1** cup chicken stock
+  *   
+**1** cup fresh basil torn
+  *   
+**1/2** cup chopped chives
+  *   
+**1** lemon zested and juiced
 
 ###  Directions
 

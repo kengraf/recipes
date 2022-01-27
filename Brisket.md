@@ -6,21 +6,28 @@
 
 Uncategorized
 
- **Prep** 5 **Cook** 4 hours **Makes** 4 **Difficulty** Easy
-**Source**[https://www.nytimes.com/2019/12/16/t-magazine/brisket-recipe-
+  
+**Prep** 5  
+**Cook** 4 hours  
+**Makes** 4  
+**Difficulty** Easy
+**Source:** [https://www.nytimes.com/2019/12/16/t-magazine/brisket-recipe-
 batsheva-
 hay.html?action=click&module;=Editors%20Picks&pgtype;=Homepage](https://www.nytimes.com/2019/12/16/t-magazine/brisket-
 recipe-batsheva-hay.html?action=click&module=Editors%20Picks&pgtype=Homepage)
 
 ###  Ingredients
 
-  * **2** -pound first-cut brisket
+  *  
+**2** -pound first-cut brisket
   
 
-  *  **4** large white onions
+  *   
+**4** large white onions
   
 
-  *  **1** teaspoon olive oil
+  *   
+**1** teaspoon olive oil
   
 
   * Paprika, salt and pepper to taste

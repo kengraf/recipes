@@ -6,24 +6,37 @@
 
 Uncategorized
 
- **Prep** 20 minutes **Cook** 140 minutes **Makes** Servings: 4
-**Source**[Williams-sonoma.com](http://www.williams-sonoma.com/recipe/braised-
+  
+**Prep** 20 minutes  
+**Cook** 140 minutes  
+**Makes** Servings: 4
+**Source:** [Williams-sonoma.com](http://www.williams-sonoma.com/recipe/braised-
 lamb-shanks-with-rosemary.html)
 
 ###  Ingredients
 
-  * **4** lamb shanks, external fat trimmed
+  *  
+**4** lamb shanks, external fat trimmed
   * Salt and freshly ground pepper, to taste
-  *  **2** Tbs. olive oil
-  *  **2** yellow onions, diced
-  *  **2** celery stalks, diced
-  *  **2** carrots, diced
-  *  **2** cups full-bodied red wine
-  *  **1** cup beef stock
-  *  **1** Tbs. dried rosemary
-  *  **3** garlic cloves, crushed with the side
+  *   
+**2** Tbs. olive oil
+  *   
+**2** yellow onions, diced
+  *   
+**2** celery stalks, diced
+  *   
+**2** carrots, diced
+  *   
+**2** cups full-bodied red wine
+  *   
+**1** cup beef stock
+  *   
+**1** Tbs. dried rosemary
+  *   
+**3** garlic cloves, crushed with the side
   * of a knife
-  *  **1** bay leaf
+  *   
+**1** bay leaf
 
 ###  Directions
 

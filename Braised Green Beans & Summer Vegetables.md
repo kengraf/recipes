@@ -7,21 +7,34 @@ ecd7-40bf-9409-1eb258fd5084.jpg)](http://assets.eatingwell.com/sites/default/fil
 
 Uncategorized
 
- **Prep** 30 minutes **Cook** 30 minutes **Makes** 6 servings
-**Source**[Eatingwell.com](http://www.eatingwell.com/recipes/braised_green_beans_summer_vegetables.html)
+  
+**Prep** 30 minutes  
+**Cook** 30 minutes  
+**Makes** 6 servings
+**Source:** [Eatingwell.com](http://www.eatingwell.com/recipes/braised_green_beans_summer_vegetables.html)
 
 ###  Ingredients
 
-  * **1** tablespoon extra-virgin olive oil
-  *  **1** small onion, halved and sliced
-  *  **1** tablespoon finely chopped fresh oregano , or 1 teaspoon dried
-  *  **1/2** cup white wine , or reduced-sodium chicken broth
-  *  **1** pound green beans, trimmed
-  *  **1** medium summer squash , or zucchini, halved and cut into 1-inch pieces
-  *  **1** cup halved cherry tomatoes , or grape tomatoes
-  *  **1/4** teaspoon salt
-  *  **1/4** teaspoon freshly ground pepper
-  *  **1/4** cup finely shredded Parmesan cheese
+  *  
+**1** tablespoon extra-virgin olive oil
+  *   
+**1** small onion, halved and sliced
+  *   
+**1** tablespoon finely chopped fresh oregano , or 1 teaspoon dried
+  *   
+**1/2** cup white wine , or reduced-sodium chicken broth
+  *   
+**1** pound green beans, trimmed
+  *   
+**1** medium summer squash , or zucchini, halved and cut into 1-inch pieces
+  *   
+**1** cup halved cherry tomatoes , or grape tomatoes
+  *   
+**1/4** teaspoon salt
+  *   
+**1/4** teaspoon freshly ground pepper
+  *   
+**1/4** cup finely shredded Parmesan cheese
 
 ###  Directions
 

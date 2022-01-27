@@ -8,17 +8,25 @@ garlic-hazelnuts_300.jpg?itok=ywltZ_O-)
 
 Uncategorized
 
- **Prep** 10 min **Cook** 15 min **Makes** Serves 8
-**Source**[Realsimple.com](http://www.realsimple.com/food-recipes/browse-all-
+  
+**Prep** 10 min  
+**Cook** 15 min  
+**Makes** Serves 8
+**Source:** [Realsimple.com](http://www.realsimple.com/food-recipes/browse-all-
 recipes/broccoli-toasted-garlic-hazelnuts)
 
 ###  Ingredients
 
-  * **1/2** cup hazelnuts
-  *  **2** bunches broccoli (about 3 pounds), cut into long florets
-  *  **1/2** cup extra-virgin olive oil
-  *  **6** cloves garlic, sliced
-  *  **2** tablespoons fresh lemon juice
+  *  
+**1/2** cup hazelnuts
+  *   
+**2** bunches broccoli (about 3 pounds), cut into long florets
+  *   
+**1/2** cup extra-virgin olive oil
+  *   
+**6** cloves garlic, sliced
+  *   
+**2** tablespoons fresh lemon juice
   * kosher salt and pepper
 
 ###  Directions

@@ -4,26 +4,41 @@
 
 Uncategorized
 
- **Cook** 30 min **Makes** 4
+  
+**Cook** 30 min  
+**Makes** 4
 
 ###  Ingredients
 
-  * **1** lb large shrimp, peeled and deveined, tails removed
-  *  **1** lb andouille sausage, sliced into rounds
-  *  **1 - 2** tablespoons cajun/creole spice mix, adjust to your spice/heat level
+  *  
+**1** lb large shrimp, peeled and deveined, tails removed
+  *   
+**1** lb andouille sausage, sliced into rounds
+  *   
+**1 - 2** tablespoons cajun/creole spice mix, adjust to your spice/heat level
   * Olive oil
   * medium yellow onion, thinly sliced
   * red bell pepper, thinly sliced
-  *  **1** teaspoon dried thyme
-  *  **1** teaspoon smoked paprika
-  *  **1** tablespoon cajun/creole spice mix
-  *  **1** teaspoon brown sugar
-  *  **2** cloves garlic, finely chopped )
-  *  **14** oz can crushed tomatoes
-  *  **¾** cup chicken broth
-  *  **1** teaspoon Worcestershire sauce
-  *  **¾** cup heavy cream, or ½ & ½
-  *  **8** ounces fettuccine or farfalle (bowties)
+  *   
+**1** teaspoon dried thyme
+  *   
+**1** teaspoon smoked paprika
+  *   
+**1** tablespoon cajun/creole spice mix
+  *   
+**1** teaspoon brown sugar
+  *   
+**2** cloves garlic, finely chopped )
+  *   
+**14** oz can crushed tomatoes
+  *   
+**¾** cup chicken broth
+  *   
+**1** teaspoon Worcestershire sauce
+  *   
+**¾** cup heavy cream, or ½ & ½
+  *   
+**8** ounces fettuccine or farfalle (bowties)
   * Kosher salt and fresh cracked black pepper
   * Grated Parmesan and chopped parsley, for servin
 

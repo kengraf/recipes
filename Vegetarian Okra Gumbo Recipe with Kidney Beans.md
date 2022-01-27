@@ -6,28 +6,45 @@
 
 Uncategorized
 
- **Makes** Serves two
-**Source**[Hubpages.com](http://hubpages.com/food/Vegetarian-Okra-Gumbo-
+  
+**Makes** Serves two
+**Source:** [Hubpages.com](http://hubpages.com/food/Vegetarian-Okra-Gumbo-
 Recipe-Kidney-Beans)
 
 ###  Ingredients
 
-  * **5** tbsp vegetable oil
-  *  **1/4** cup flour
-  *  **1/2** tsp paprika
-  *  **1** small green bell pepper
-  *  **1/2** onion
-  *  **1** stalk celery
-  *  **2** cloves garlic
-  *  **4** tbsp finely minced, fresh parsley
-  *  **1/2** tsp liquid smoke
-  *  **3** and 1/2 cups white wine
-  *  **4** cups water or vegetable stock
-  *  **1** and 1/2 cups cut okra
-  *  **3** tbsp red wine vinegar
-  *  **2** cans drained dark red kidney beans
-  *  **1** can diced tomato
-  *  **1** tsp salt
+  *  
+**5** tbsp vegetable oil
+  *   
+**1/4** cup flour
+  *   
+**1/2** tsp paprika
+  *   
+**1** small green bell pepper
+  *   
+**1/2** onion
+  *   
+**1** stalk celery
+  *   
+**2** cloves garlic
+  *   
+**4** tbsp finely minced, fresh parsley
+  *   
+**1/2** tsp liquid smoke
+  *   
+**3** and 1/2 cups white wine
+  *   
+**4** cups water or vegetable stock
+  *   
+**1** and 1/2 cups cut okra
+  *   
+**3** tbsp red wine vinegar
+  *   
+**2** cans drained dark red kidney beans
+  *   
+**1** can diced tomato
+  *   
+**1** tsp salt
   * freshly ground black pepper (to taste)
   * red pepper (to taste)
   * hot sauce (to taste)

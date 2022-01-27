@@ -6,22 +6,34 @@
 
 Uncategorized
 
- **Prep** 20 mins **Cook** 35 mins **Makes** Servings: 4
-**Source**[Marthastewart.com](http://www.marthastewart.com/315602/linguine-
+  
+**Prep** 20 mins  
+**Cook** 35 mins  
+**Makes** Servings: 4
+**Source:** [Marthastewart.com](http://www.marthastewart.com/315602/linguine-
 with-white-clam-sauce)
 
 ###  Ingredients
 
   * Coarse salt
-  *  **12** ounces linguine
-  *  **3** tablespoons olive oil
-  *  **1** medium onion, finely chopped
-  *  **4** garlic cloves, thinly sliced
-  *  **1/4** teaspoon red-pepper flakes
-  *  **3/4** cup dry white wine
-  *  **2** pounds small clams (50 to 55), such as Manila, rinsed and scrubbed
-  *  **2** tablespoons butter
-  *  **1/4** cup fresh parsley, coarsely chopped
+  *   
+**12** ounces linguine
+  *   
+**3** tablespoons olive oil
+  *   
+**1** medium onion, finely chopped
+  *   
+**4** garlic cloves, thinly sliced
+  *   
+**1/4** teaspoon red-pepper flakes
+  *   
+**3/4** cup dry white wine
+  *   
+**2** pounds small clams (50 to 55), such as Manila, rinsed and scrubbed
+  *   
+**2** tablespoons butter
+  *   
+**1/4** cup fresh parsley, coarsely chopped
 
 ###  Directions
 

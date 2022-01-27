@@ -7,23 +7,34 @@ wonton-soup.jpg?w=300&h=239)
 
 Uncategorized
 
-**Source**[Laptop2tabletop.com](https://laptop2tabletop.com/2015/01/10/deconstructed-
+**Source:** [Laptop2tabletop.com](https://laptop2tabletop.com/2015/01/10/deconstructed-
 wonton-soup/)
 
 ###  Ingredients
 
   * Sesame oil
-  *  **2** carrots, julienned
-  *  **1** celery stalks, chopped
-  *  **1/4** c + 2 tbs thinly sliced green onions, divided
-  *  **4-5** c chicken broth
-  *  **2** tsp soy sauce or Briggs Amino Acid
-  *  **1/2** tsp ginger
-  *  **1-2** bunches baby Bok Choy, trimmed and cut into 1/2″ slices
-  *  **1** lg cooked chicken breast, shredded
-  *  **24** wonton wrappers, sliced into 1/4″ strips
-  *  **2** tbs chiffonade fresh basil
-  *  **2** tbs chopped fresh cilantro
+  *   
+**2** carrots, julienned
+  *   
+**1** celery stalks, chopped
+  *   
+**1/4** c + 2 tbs thinly sliced green onions, divided
+  *   
+**4-5** c chicken broth
+  *   
+**2** tsp soy sauce or Briggs Amino Acid
+  *   
+**1/2** tsp ginger
+  *   
+**1-2** bunches baby Bok Choy, trimmed and cut into 1/2″ slices
+  *   
+**1** lg cooked chicken breast, shredded
+  *   
+**24** wonton wrappers, sliced into 1/4″ strips
+  *   
+**2** tbs chiffonade fresh basil
+  *   
+**2** tbs chopped fresh cilantro
   * Freshly ground sea salt and black pepper
 
 ###  Directions

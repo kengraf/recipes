@@ -4,21 +4,33 @@
 
 Uncategorized
 
- **Prep** 15 minutes **Makes** 4
+  
+**Prep** 15 minutes  
+**Makes** 4
 
 ###  Ingredients
 
-  * **1** pound large shrimp, peeled and deveined
+  *  
+**1** pound large shrimp, peeled and deveined
   * Kosher salt and black pepper
-  *  **2** tablespoons extra-virgin olive oil
-  *  **1** pint cherry or grape tomatoes
-  *  **2** cups fresh or frozen corn kernels (from 4 ears)
-  *  **5** garlic cloves, minced
-  *  **½** teaspoon red-pepper flakes
-  *  **¼** cup dry white wine
-  *  **2** tablespoons fresh lemon juice (from 1 lemon), plus wedges for serving (optional)
-  *  **5** tablespoons unsalted butter, cut into 5 pieces
-  *  **3** tablespoons chopped parsley or chives, or torn basil leaves
+  *   
+**2** tablespoons extra-virgin olive oil
+  *   
+**1** pint cherry or grape tomatoes
+  *   
+**2** cups fresh or frozen corn kernels (from 4 ears)
+  *   
+**5** garlic cloves, minced
+  *   
+**½** teaspoon red-pepper flakes
+  *   
+**¼** cup dry white wine
+  *   
+**2** tablespoons fresh lemon juice (from 1 lemon), plus wedges for serving (optional)
+  *   
+**5** tablespoons unsalted butter, cut into 5 pieces
+  *   
+**3** tablespoons chopped parsley or chives, or torn basil leaves
 
 ###  Directions
 

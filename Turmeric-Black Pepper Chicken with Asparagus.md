@@ -8,24 +8,35 @@ chicken/merlin_170459076_be9517b6-6c9d-47f1-bb27-843d6c777088-articleLarge.jpg)
 
 Uncategorized
 
- **Cook** 15 minutes **Makes** Yield 4 servings
-**Source**[Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1020970-turmeric-
+  
+**Cook** 15 minutes  
+**Makes** Yield 4 servings
+**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1020970-turmeric-
 black-pepper-chicken-with-
 asparagus?action=click&module=RecipeBox&pgType=recipebox-
 page&region=all&rank=0)
 
 ###  Ingredients
 
-  * **3** tablespoons honey
-  *  **¾** teaspoon black pepper, plus more to taste
+  *  
+**3** tablespoons honey
+  *   
+**¾** teaspoon black pepper, plus more to taste
   * Kosher salt
-  *  **2** tablespoons all-purpose flour
-  *  **1 ½** teaspoons ground turmeric
-  *  **1** pound boneless, skinless chicken thighs, cut into 1-inch pieces
-  *  **1** tablespoon coconut or canola oil
-  *  **12** ounces asparagus, trimmed and thinly sliced on an angle
-  *  **1** teaspoon unseasoned rice vinegar or soy sauce
-  *  **1** lime, cut into wedges (optional)
+  *   
+**2** tablespoons all-purpose flour
+  *   
+**1 ½** teaspoons ground turmeric
+  *   
+**1** pound boneless, skinless chicken thighs, cut into 1-inch pieces
+  *   
+**1** tablespoon coconut or canola oil
+  *   
+**12** ounces asparagus, trimmed and thinly sliced on an angle
+  *   
+**1** teaspoon unseasoned rice vinegar or soy sauce
+  *   
+**1** lime, cut into wedges (optional)
 
 ###  Directions
 

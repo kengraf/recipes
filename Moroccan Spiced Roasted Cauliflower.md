@@ -7,24 +7,39 @@ sPs3tpNWHY2wyotq8gohRgCwiCIaxz1R9ZpSnw2oooyULw00=w600-rw-l68-e365)
 
 Uncategorized
 
- **Prep** 10 min **Cook** 48 min **Makes** Serves: 4
-**Source**[Justapinch.com](https://www.justapinch.com/recipes/side/vegetable/moroccan-
+  
+**Prep** 10 min  
+**Cook** 48 min  
+**Makes** Serves: 4
+**Source:** [Justapinch.com](https://www.justapinch.com/recipes/side/vegetable/moroccan-
 spiced-roasted-cauliflower.html)
 
 ###  Ingredients
 
-  * **1** Tbsp olive oil
-  *  **2** clove garlic, minced
-  *  **1** medium onion, sliced
-  *  **1** large cauliflower bunch, cut into florets
-  *  **1** cup diced tomatoes
-  *  **1** tsp ground cumin
-  *  **1/2** tsp turmeric
-  *  **1/2** tsp salt
-  *  **1/2** tsp black pepper
-  *  **1** pinch red pepper flakes
-  *  **2** Tbsp fresh cilantro leaves, chopped
-  *  **1** tsp fresh mint leaves, chopped
+  *  
+**1** Tbsp olive oil
+  *   
+**2** clove garlic, minced
+  *   
+**1** medium onion, sliced
+  *   
+**1** large cauliflower bunch, cut into florets
+  *   
+**1** cup diced tomatoes
+  *   
+**1** tsp ground cumin
+  *   
+**1/2** tsp turmeric
+  *   
+**1/2** tsp salt
+  *   
+**1/2** tsp black pepper
+  *   
+**1** pinch red pepper flakes
+  *   
+**2** Tbsp fresh cilantro leaves, chopped
+  *   
+**1** tsp fresh mint leaves, chopped
   * Add Ingredients to Grocery List
 
 ###  Directions

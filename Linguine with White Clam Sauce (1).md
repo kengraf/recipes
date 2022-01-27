@@ -7,19 +7,27 @@ allrecipes.com/userphotos/720x405/3266359.jpg)
 
 Uncategorized
 
- **Makes** 5 **Difficulty** Easy
-**Source**[Allrecipes.com](http://allrecipes.com/recipe/12000/linguine-with-
+  
+**Makes** 5  
+**Difficulty** Easy
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/12000/linguine-with-
 white-clam-
 sauce-i/?prop26=dailydish&prop28=your%20daily%20recipe_1_1&prop29=title&prop25=62484&prop27=2016-08-30&did=62484&eaid=18400790)
 
 ###  Ingredients
 
-  * **1** (16 ounce) package linguini pasta
-  *  **1** tablespoon olive oil
-  *  **3** cloves garlic, minced
-  *  **2** (6.5 ounce) cans minced clams, with juice
-  *  **1/4** cup clam juice
-  *  **1** tablespoon chopped fresh parsley
+  *  
+**1** (16 ounce) package linguini pasta
+  *   
+**1** tablespoon olive oil
+  *   
+**3** cloves garlic, minced
+  *   
+**2** (6.5 ounce) cans minced clams, with juice
+  *   
+**1/4** cup clam juice
+  *   
+**1** tablespoon chopped fresh parsley
   * salt to taste
   * ground black pepper to taste
 
