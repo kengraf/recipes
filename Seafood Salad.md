@@ -1,45 +1,26 @@
-﻿
-
-[![](./images/8f251aa0-e687-4689-8494-45795f319ddb.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/4/FNM_050113-Seafood-
-Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
+[![](./images/8f251aa0-e687-4689-8494-45795f319ddb.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/4/FNM_050113-Seafood-Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
 
 #  Seafood Salad
 
-Uncategorized
-
-  
 **Cook** 1 hr  
-**Makes** 4 to 6 servings
-**Source:** [Foodnetwork.com](http://www.foodnetwork.com/recipes/food-network-
-kitchen/seafood-salad-recipe2-2112678)
+**Makes** 4 to 6 servings  
+**Source:** [Foodnetwork.com](http://www.foodnetwork.com/recipes/food-network-kitchen/seafood-salad-recipe2-2112678)
 
 ###  Ingredients
 
   * Kosher salt
-  *   
-**3** lemons (1 halved, 2 juiced)
-  *   
-**4** cloves garlic, smashed
-  *   
-**1** small red onion, thinly sliced
-  *   
-**1/2** pound large shrimp, peeled and deveined
-  *   
-**1/2** pound sea scallops, halved or quartered if large
-  *   
-**3/4** pound calamari, tubes thinly sliced, tentacles halved
-  *   
-**1** pound mussels, scrubbed and debearded
-  *   
-**2** inner stalks celery, thinly sliced
-  *   
-**1** small bulb fennel, quartered, cored and thinly sliced, plus fronds for topping
-  *   
-**1/2** cup sliced pitted green olives
-  *   
-**1/2** cup fresh parsley
-  *   
-**6** tablespoons extra-virgin olive oil
+  *   **3** lemons (1 halved, 2 juiced)
+  *   **4** cloves garlic, smashed
+  *   **1** small red onion, thinly sliced
+  *   **1/2** pound large shrimp, peeled and deveined
+  *   **1/2** pound sea scallops, halved or quartered if large
+  *   **3/4** pound calamari, tubes thinly sliced, tentacles halved
+  *   **1** pound mussels, scrubbed and debearded
+  *   **2** inner stalks celery, thinly sliced
+  *   **1** small bulb fennel, quartered, cored and thinly sliced, plus fronds for topping
+  *   **1/2** cup sliced pitted green olives
+  *   **1/2** cup fresh parsley
+  *   **6** tablespoons extra-virgin olive oil
   * Freshly ground pepper
 
 ###  Directions
