@@ -4,8 +4,7 @@
 
 **Cook** 20 minutes  
 **Makes** Yield 2 to 3 servings
-**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1021430-spiced-ginger-shrimp-with-burst-tomatoes?action=click&module=RecipeBox&pgType=recipebox-
-page&region=all&rank=2)
+**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1021430-spiced-ginger-shrimp-with-burst-tomatoes?action=click&module=RecipeBox&pgType=recipebox-page&region=all&rank=2)
 
 ###  Ingredients
 
