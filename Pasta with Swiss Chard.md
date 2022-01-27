@@ -1,36 +1,23 @@
-﻿
-
-[![](./images/71297be5-24ca-4dcb-a429-c7a7944d14a9.jpg)](http://images.media-
-allrecipes.com/userphotos/720x405/2971985.jpg)
+[![](./images/71297be5-24ca-4dcb-a429-c7a7944d14a9.jpg)](http://images.media-allrecipes.com/userphotos/720x405/2971985.jpg)
 
 #  Pasta with Swiss Chard
 
-Uncategorized
 
-  
 **Prep** 10 m  
 **Cook** 15 m  
 **Makes** 2
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/218593/pasta-with-
-swiss-chard/)
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/218593/pasta-with-swiss-chard/)
 
 ###  Ingredients
 
-  *  
-**1/3** pound whole-wheat spaghetti
-  *   
-**2** tablespoons extra-virgin olive oil
-  *   
-**1** clove garlic, minced
-  *   
-**1** bunch Swiss chard, chopped
-  *   
-**1** teaspoon capers
+  *  **1/3** pound whole-wheat spaghetti
+  *   **2** tablespoons extra-virgin olive oil
+  *   **1** clove garlic, minced
+  *   **1** bunch Swiss chard, chopped
+  *   **1** teaspoon capers
   * salt and pepper to taste
-  *   
-**1** teaspoon lemon juice, or to taste (optional)
-  *   
-**1/4** cup grated Parmesan cheese, or to taste
+  *   **1** teaspoon lemon juice, or to taste (optional)
+  *   **1/4** cup grated Parmesan cheese, or to taste
 
 ###  Directions
 
