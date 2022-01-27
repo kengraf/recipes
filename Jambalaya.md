@@ -1,56 +1,32 @@
-﻿
-
 #  Jambalaya
 
-Uncategorized
 
-  
 **Cook** 1 hour  
-**Makes** 6  
+**Makes** 6   
 **Source:** <https://cafedelites.com/jambalaya/>
 
 ###  Ingredients
 
-  *  
-**3** tablespoons cooking oil, divided
-  *   
-**2** tablespoons Slap Ya Mama/Cajun seasoning, (adjust to suit your tastes/heat preference)
-  *   
-**10** ounces (300 g) andouille sausage, sliced into rounds
-  *   
-**1** pound (500 g) boneless skinless chicken breasts or thighs, cut into 1 inch pieces
-  *   
-**1** onion diced
-  *   
-**1** small green bell pepper (capsicum), seeded and diced
-  *   
-**1** small red bell pepper (capsicum), seeded and diced
-  *   
-**2** stalks/ribs celery, chopped
-  *   
-**4** cloves garlic, minced
-  *   
-**14** ounces (400 g) can crushed tomatoes
-  *   
-**1** teaspoon salt
-  *   
-**1/2** teaspoon ground black pepper
-  *   
-**1** teaspoon each dried thyme and dried oregano
-  *   
-**1/2** teaspoon red pepper flakes (or 1/4 teaspoon Cayenne powder)
-  *   
-**1/2** teaspoon hot pepper sauce
-  *   
-**2** teaspoons Worcestershire sauce
-  *   
-**1** cup thinly sliced okra (or 1 teaspoon file powder)
-  *   
-**1 1/2** cups uncooked white rice (short grain or long grain)
-  *   
-**3** cups low sodium chicken broth
-  *   
-**1** pound (500 g) raw shrimp/prawns tails on or off, peeled and deveined
+  *  **3** tablespoons cooking oil, divided
+  *   **2** tablespoons Slap Ya Mama/Cajun seasoning, (adjust to suit your tastes/heat preference)
+  *   **10** ounces (300 g) andouille sausage, sliced into rounds
+  *   **1** pound (500 g) boneless skinless chicken breasts or thighs, cut into 1 inch pieces
+  *   **1** onion diced
+  *   **1** small green bell pepper (capsicum), seeded and diced
+  *   **1** small red bell pepper (capsicum), seeded and diced
+  *   **2** stalks/ribs celery, chopped
+  *   **4** cloves garlic, minced
+  *   **14** ounces (400 g) can crushed tomatoes
+  *   **1** teaspoon salt
+  *   **1/2** teaspoon ground black pepper
+  *   **1** teaspoon each dried thyme and dried oregano
+  *   **1/2** teaspoon red pepper flakes (or 1/4 teaspoon Cayenne powder)
+  *   **1/2** teaspoon hot pepper sauce
+  *   **2** teaspoons Worcestershire sauce
+  *   **1** cup thinly sliced okra (or 1 teaspoon file powder)
+  *   **1 1/2** cups uncooked white rice (short grain or long grain)
+  *   **3** cups low sodium chicken broth
+  *   **1** pound (500 g) raw shrimp/prawns tails on or off, peeled and deveined
   * Sliced green onions and chopped parsley, to garnish
 
 ###  Directions
