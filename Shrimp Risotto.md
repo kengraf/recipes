@@ -1,44 +1,25 @@
-﻿
-
 #  Shrimp Risotto
 
-Uncategorized
-
-  
 **Prep** 15  
 **Cook** 60  
 **Makes** 4
 
 ###  Ingredients
 
-  *  
-**1** lb shrimp
-  *   
-**7** cups water
-  *   
-**2** bay leaves
-  *   
-**1** tblsp course black pepper
-  *   
-**2** tblp butter
-  *   
-**1** onion chopper fine
-  *   
-**1** fennel bulb, cored and chopped fine
-  *   
-**1/8** tsp baking soda
-  *   
-**1** cup arborio rice
-  *   
-**3/4** cup dry white wine
-  *   
-**1/2** cup parmesan cheese
-  *   
-**1/4** cup fresh chives
-  *   
-**1/2** tsp lemon zest
-  *   
-**1** tblsp lemon juice
+  *  **1** lb shrimp
+  *  **7** cups water
+  *   **2** bay leaves
+  *   **1** tblsp course black pepper
+  *   **2** tblp butter
+  *   **1** onion chopper fine
+  *   **1** fennel bulb, cored and chopped fine
+  *   **1/8** tsp baking soda
+  *   **1** cup arborio rice
+  *   **3/4** cup dry white wine
+  *   **1/2** cup parmesan cheese
+  *   **1/4** cup fresh chives
+  *   **1/2** tsp lemon zest
+  *   **1** tblsp lemon juice
 
 ###  Directions
 
