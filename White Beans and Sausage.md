@@ -1,47 +1,28 @@
-﻿
-
-[![](./images/b57ec1e5-da06-44c0-b40b-8b3dd89641bf.jpg)](https://www.simplyrecipes.com/thmb/MP2aDG1zMOIrd-
-AWYi7_D1jTGTo=/1600x0/filters:no_upscale\(\):max_bytes\(150000\):strip_icc\(\):format\(webp\)/__opt__aboutcom__coeus__resources__content_migration__simply_recipes__uploads__2007__09__white-
-beans-sausage-horiz-a-1600-aecd4e3b589548cea049bf3f11c93540.jpg)
+[![](./images/b57ec1e5-da06-44c0-b40b-8b3dd89641bf.jpg)](https://www.simplyrecipes.com/thmb/MP2aDG1zMOIrd-AWYi7_D1jTGTo=/1600x0/filters:no_upscale\(\):max_bytes\(150000\):strip_icc\(\):format\(webp\)/__opt__aboutcom__coeus__resources__content_migration__simply_recipes__uploads__2007__09__white-beans-sausage-horiz-a-1600-aecd4e3b589548cea049bf3f11c93540.jpg)
 
 #  White Beans and Sausage
 
-Uncategorized
-
-  
 **Prep** 5 mins  
 **Cook** 20 mins  
-**Makes** Servings 4 to 8 servings
+**Makes** Servings 4 to 8 servings  
 **Source:** [Simplyrecipes.com](https://www.simplyrecipes.com/recipes/white_beans_and_sausage/)
 
 ###  Ingredients
 
-  *  
-**1** pound dried cannellini beans
-  *   
-**2** tablespoons extra virgin olive oil
-  *   
-**4-5** fresh sage leaves
-  *   
-**2** cloves garlic, crushed
-  *   
-**3** teaspoons kosher salt
-  *   
-**4** black peppercorns
+  *   **1** pound dried cannellini beans
+  *   **2** tablespoons extra virgin olive oil
+  *   **4-5** fresh sage leaves
+  *   **2** cloves garlic, crushed
+  *   **3** teaspoons kosher salt
+  *   **4** black peppercorns
   * OR
-  *   
-**4 15** -ounce cans cannellini beans
-  *   
-**5** tablespoons extra olive oil
-  *   
-**1 1/2** pounds sweet Italian sausage
-  *   
-**4** cloves garlic, peeled and crushed
-  *   
-**3-4** canned plum tomatoes, chopped
+  *   **4 15** -ounce cans cannellini beans
+  *   **5** tablespoons extra olive oil
+  *   **1 1/2** pounds sweet Italian sausage
+  *   **4** cloves garlic, peeled and crushed
+  *   **3-4** canned plum tomatoes, chopped
   * Pinch red pepper flakes
-  *   
-**1** cup tomato purée
+  *   **1** cup tomato purée
   * Salt (about 2 teaspoons) and freshly ground black pepper
 
 ###  Directions
