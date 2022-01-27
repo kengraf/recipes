@@ -1,37 +1,23 @@
-﻿
-
-[![](./images/c384f9d8-4de5-4ed1-bb0e-8311e5cbef2e.jpg)](http://images.media-
-allrecipes.com/userphotos/720x405/3400730.jpg)
+[![](./images/c384f9d8-4de5-4ed1-bb0e-8311e5cbef2e.jpg)](http://images.media-allrecipes.com/userphotos/720x405/3400730.jpg)
 
 #  Cauliflower Supreme
 
-Uncategorized
 
-  
 **Prep** 15 m  
 **Cook** 30 m  
-**Makes** 6
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/43725/cauliflower-
-supreme/)
+**Makes** 6  
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/43725/cauliflower-supreme/)
 
 ###  Ingredients
 
-  *  
-**1** head cauliflower, broken into small florets
-  *   
-**1/2** cup butter
-  *   
-**1/2** pound fresh mushrooms, sliced
-  *   
-**1/2** cup green onions, sliced
-  *   
-**1/3** cup blanched slivered almonds
-  *   
-**2** teaspoons chicken bouillon
-  *   
-**1 1/2** tablespoons cornstarch
-  *   
-**1** cup water
+  *  **1** head cauliflower, broken into small florets
+  *  **1/2** cup butter
+  *  **1/2** pound fresh mushrooms, sliced
+  *  **1/2** cup green onions, sliced
+  *  **1/3** cup blanched slivered almonds
+  *  **2** teaspoons chicken bouillon
+  *  **1 1/2** tablespoons cornstarch
+  *  **1** cup water
 
 ###  Directions
 
