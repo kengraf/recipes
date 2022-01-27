@@ -1,45 +1,28 @@
-﻿
-
-[![](./images/8e65f09c-cbc0-40ef-8fba-74d36bf3374d.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2018/4/2/2/LS-
-Library_Italian-Chicken-and-Bean-
-Stew_s4x3.jpg.rend.hgtvcom.826.620.suffix/1522721384513.jpeg)
+[![](./images/8e65f09c-cbc0-40ef-8fba-74d36bf3374d.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2018/4/2/2/LS-Library_Italian-Chicken-and-Bean-Stew_s4x3.jpg.rend.hgtvcom.826.620.suffix/1522721384513.jpeg)
 
 #  Italian Chicken and Bean Stew
-
-Uncategorized
 
   
 **Prep** 35 min  
 **Cook** 1 hr  
-**Makes** Yield: 4
-**Source:** [Foodnetwork.com](https://www.foodnetwork.com/recipes/food-network-
-kitchen/italian-chicken-and-bean-stew-5478377)
+**Makes** Yield: 4  
+**Source:** [Foodnetwork.com](https://www.foodnetwork.com/recipes/food-network-kitchen/italian-chicken-and-bean-stew-5478377)
 
 ###  Ingredients
 
-  *  
-**8** bone-in, skin-on chicken thighs (about 2 1/2 pounds)
+  *  **8** bone-in, skin-on chicken thighs (about 2 1/2 pounds)
   * Kosher salt and freshly ground black pepper
-  *   
-**3** tablespoons extra-virgin olive oil
-  *   
-**1** small onion, chopped
-  *   
-**4** cloves garlic, finely chopped
-  *   
-**1/4** teaspoon red pepper flakes
-  *   
-**1** tablespoon tomato paste
-  *   
-**1/2** cup dry white wine
-  *   
-**2** cups low-sodium chicken broth
+  *   **3** tablespoons extra-virgin olive oil
+  *   **1** small onion, chopped
+  *   **4** cloves garlic, finely chopped
+  *   **1/4** teaspoon red pepper flakes
+  *   **1** tablespoon tomato paste
+  *   **1/2** cup dry white wine
+  *   **2** cups low-sodium chicken broth
   * One 15-ounce can cannellini bean, rinsed and drained
   * One 14-ounce can diced tomatoes
-  *   
-**1** teaspoon dried oregano
-  *   
-**1/3** cup grated Parmesan, plus more for serving
+  *   **1** teaspoon dried oregano
+  *   **1/3** cup grated Parmesan, plus more for serving
   * Fresh oregano for garnish (optional)
 
 ###  Directions
