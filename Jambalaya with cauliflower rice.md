@@ -1,44 +1,25 @@
-﻿
+#  Jambalaya-with-cauliflower-rice
 
-#  -jambalaya-with-cauliflower-rice
 
-Uncategorized
-
-  
-**Makes** 4  
-**Source:** <https://mylavenderblues.com/kickin-jambalaya-with-
-cauliflower-rice/>
+**Makes** 4    
+**Source:** <https://mylavenderblues.com/kickin-jambalaya-with-cauliflower-rice/>
 
 ###  Ingredients
 
-  *  
-**1** lb peeled & deveined shrimp (optional to leave tail on)
-  *   
-**1** lb andouille sausage sliced
-  *   
-**½** cup chopped yellow onion (or half a medium sized yellow onion)
-  *   
-**½** cup chopped green pepper (about half of large green pepper)
-  *   
-**½** cup chopped celery (about 2 stalks)
-  *   
-**3** bay leaves
-  *   
-**½** cup frozen chopped okra
-  *   
-**2** tbsp olive oil
-  *   
-**½** head Cauliflower, riced (or about 4-6 cups)
-  *   
-**28** oz petit diced tomatoes
-  *   
-**1** tsp worcestershire sauce
-  *   
-**8** oz vegetable stock
-  *   
-**¼** cup fresh parsley, chopped (For garnish)
-  *   
-**6** tsp Emerils Essence
+  *  **1** lb peeled & deveined shrimp (optional to leave tail on)
+  *   **1** lb andouille sausage sliced
+  *   **½** cup chopped yellow onion (or half a medium sized yellow onion)
+  *   **½** cup chopped green pepper (about half of large green pepper)
+  *   **½** cup chopped celery (about 2 stalks)
+  *   **3** bay leaves
+  *   **½** cup frozen chopped okra
+  *   **2** tbsp olive oil
+  *   **½** head Cauliflower, riced (or about 4-6 cups)
+  *   **28** oz petit diced tomatoes
+  *   **1** tsp worcestershire sauce
+  *   **8** oz vegetable stock
+  *   **¼** cup fresh parsley, chopped (For garnish)
+  *   **6** tsp Emerils Essence
 
 ###  Directions
 
