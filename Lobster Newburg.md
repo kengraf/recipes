@@ -1,30 +1,19 @@
-﻿
-
 #  Lobster Newburg
 
-Uncategorized
 
-  
-**Makes** Serves 6
-**Source:** [Epicurious.com](http://www.epicurious.com/recipes/food/views/lobster-
-newburg-11057)
+**Makes** Serves 6  
+**Source:** [Epicurious.com](http://www.epicurious.com/recipes/food/views/lobster-newburg-11057)
 
 ###  Ingredients
 
   * three 1 1/2-pound live lobsters
-  *   
-**1/2** stick (1/4 cup) unsalted butter
-  *   
-**2** tablespoons plus 1 teaspoon medium-dry Sherry
-  *   
-**3** tablespoons plus 1 teaspoon brandy
-  *   
-**1 1/2** cups heavy cream
-  *   
-**1/4** teaspoon freshly grated nutmeg
+  *   **1/2** stick (1/4 cup) unsalted butter
+  *   **2** tablespoons plus 1 teaspoon medium-dry Sherry
+  *   **3** tablespoons plus 1 teaspoon brandy
+  *   **1 1/2** cups heavy cream
+  *   **1/4** teaspoon freshly grated nutmeg
   * cayenne to taste
-  *   
-**4** large egg yolks, beaten well
+  *   **4** large egg yolks, beaten well
   * toast points as an accompaniment
 
 ###  Directions
