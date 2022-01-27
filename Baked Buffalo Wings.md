@@ -1,39 +1,24 @@
-﻿
-
-[![](./images/007117f7-013d-41d5-aa8f-992e318b8355.jpg)](https://www.dinneratthezoo.com/wp-
-content/uploads/2016/08/baked-buffalo-wings-11.jpg.webp)
+[![](./images/007117f7-013d-41d5-aa8f-992e318b8355.jpg)](https://www.dinneratthezoo.com/wp-content/uploads/2016/08/baked-buffalo-wings-11.jpg.webp)
 
 #  Baked Buffalo Wings
 
-Uncategorized
-
-  
 **Prep** 20 minutes  
 **Cook** 45 minutes  
-**Makes** Servings 6 servings
+**Makes** Servings 6 servings  
 **Source:** [Dinneratthezoo.com](https://www.dinneratthezoo.com/baked-buffalo-
 wings/)
 
 ###  Ingredients
 
-  *  
-**3** pounds party style chicken wings or whole chicken wings that have been halved crosswise
-  *   
-**1** tablespoon baking powder do NOT use baking soda
-  *   
-**1** teaspoon salt
-  *   
-**1/2** teaspoon pepper
-  *   
-**1/2** teaspoon garlic powder
-  *   
-**1/2** teaspoon onion powder
-  *   
-**1/2** cup hot sauce such as Frank's Red Hot Sauce
-  *   
-**4** tablespoons butter melted
-  *   
-**1** tablespoon honey
+  *  **3** pounds party style chicken wings or whole chicken wings that have been halved crosswise
+  *  **1** tablespoon baking powder do NOT use baking soda
+  *  **1** teaspoon salt
+  *  **1/2** teaspoon pepper
+  *  **1/2** teaspoon garlic powder
+  *  **1/2** teaspoon onion powder
+  *  **1/2** cup hot sauce such as Frank's Red Hot Sauce
+  *  **4** tablespoons butter melted
+  *  **1** tablespoon honey
   * celery sticks and ranch dressing for serving.
 
 ###  Directions
