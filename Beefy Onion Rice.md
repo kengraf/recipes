@@ -7,8 +7,7 @@
 **Prep** 5 min  
 **Cook** 25 min  
 **Makes** 4  
-**Source:** [Mccormick.com](https://www.mccormick.com/recipes/salads-
-sides/beefy-onion-rice)
+**Source:** [Mccormick.com](https://www.mccormick.com/recipes/salads-sides/beefy-onion-rice)
 
 ###  Ingredients
 
