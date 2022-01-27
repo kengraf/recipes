@@ -5,7 +5,7 @@
  **Prep** 15  
  **Cook** 45  
  **Makes** 4  
- **Difficulty** Medium
+ **Difficulty** Medium  
 **Source**<https://cooking.nytimes.com/recipes/1020811-cheesy-baked-pasta-with-sausage-and-ricotta>
 
 ###  Ingredients
