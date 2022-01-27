@@ -1,32 +1,20 @@
-﻿
-
 [![](./images/dc3afa57-d60c-410c-b680-35678c3612a3.jpg)](http://www.dispatch.com/content/graphics/2015/04/28/derby-4.jpg?__scale=w:660%2Ch:487%2Ct:1%2Cc:ffffff%2Cq:80%2Cr:1)
 
 #  Derby Bourbon Shrimp
 
-Uncategorized
-
-  
-**Makes** 10 to 12 servings
-**Source:** [Dispatch.com](http://www.dispatch.com/content/stories/food/2015/04/29/derby-
-bourbon-shrimp.html)
+**Makes** 10 to 12 servings  
+**Source:** [Dispatch.com](http://www.dispatch.com/content/stories/food/2015/04/29/derby-bourbon-shrimp.html)
 
 ###  Ingredients
 
-  *  
-**1** pound frozen raw shrimp, peeled and deveined (45-50 count), tails removed
-  *   
-**2** teaspoons extra-virgin olive oil
-  *   
-**4** teaspoons Cajun seasoning
-  *   
-**4** teaspoons bourbon
+  *  **1** pound frozen raw shrimp, peeled and deveined (45-50 count), tails removed
+  *   **2** teaspoons extra-virgin olive oil
+  *   **4** teaspoons Cajun seasoning
+  *   **4** teaspoons bourbon
   * Salt
   * Pepper
-  *   
-**1** English (seedless) cucumber, sliced into 1/4-inch rounds
-  *   
-**1/2** cup sour cream
+  *   **1** English (seedless) cucumber, sliced into 1/4-inch rounds
+  *   **1/2** cup sour cream
   * Bourbon smoked paprika
 
 ###  Directions
