@@ -1,41 +1,24 @@
-﻿
-
-[![](./images/45704d22-a039-4832-8c35-c489002c25c4.jpg)](http://images.media-
-allrecipes.com/userphotos/720x405/2322420.jpg)
+[![](./images/45704d22-a039-4832-8c35-c489002c25c4.jpg)](http://images.media-allrecipes.com/userphotos/720x405/2322420.jpg)
 
 #  Spicy Bok Choy in Garlic Sauce
 
-Uncategorized
-
-  
 **Prep** 15 m  
 **Cook** 15 m  
-**Makes** 4
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/167331/spicy-bok-choy-
-in-garlic-sauce/)
+**Makes** 4  
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/167331/spicy-bok-choy-in-garlic-sauce/)
 
 ###  Ingredients
 
-  *  
-**1** pound bok choy
-  *   
-**1** tablespoon vegetable oil
-  *   
-**1** tablespoon sesame oil
-  *   
-**1/4** cup water
-  *   
-**1** teaspoon grated fresh ginger root
-  *   
-**2** cloves garlic, minced
-  *   
-**1** tablespoon oyster sauce
-  *   
-**1** tablespoon light soy sauce
-  *   
-**1** tablespoon brown sugar
-  *   
-**1/8** teaspoon crushed red pepper flakes (optional)
+  *   **1** pound bok choy
+  *   **1** tablespoon vegetable oil
+  *   **1** tablespoon sesame oil
+  *   **1/4** cup water
+  *   **1** teaspoon grated fresh ginger root
+  *   **2** cloves garlic, minced
+  *   **1** tablespoon oyster sauce
+  *   **1** tablespoon light soy sauce
+  *   **1** tablespoon brown sugar
+  *   **1/8** teaspoon crushed red pepper flakes (optional)
 
 ###  Directions
 
