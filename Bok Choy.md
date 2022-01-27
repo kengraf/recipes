@@ -1,5 +1,4 @@
-[![](./images/e9428530-41b1-48b0-827d-af28cec1a0d6.jpg)](http://www.mindfood.com/wp-content/themes/mindfood-
-theme/timthumb.php?src=http:%2F%2Fwww.mindfood.com%2Fwp-content%2Fuploads%2F2013%2F02%2F49dd899f-ea37-447e-9cc3-7d4c70945dc3.jpg&w=300&h=&zc=0)
+[![](./images/e9428530-41b1-48b0-827d-af28cec1a0d6.jpg)](http://www.mindfood.com/wp-content/themes/mindfood-theme/timthumb.php?src=http:%2F%2Fwww.mindfood.com%2Fwp-content%2Fuploads%2F2013%2F02%2F49dd899f-ea37-447e-9cc3-7d4c70945dc3.jpg&w=300&h=&zc=0)
 
 #  Bok Choy
 
