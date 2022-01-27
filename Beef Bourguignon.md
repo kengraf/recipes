@@ -1,55 +1,31 @@
-﻿
-
-[![](./images/b89eb375-a869-4cfa-8ed3-ea7bad598cc9.jpg)](https://cafedelites.com/wp-
-content/uploads/2018/02/Beef-Bourguignon-IMAGE-36-500x500.jpg)
+[![](./images/b89eb375-a869-4cfa-8ed3-ea7bad598cc9.jpg)](https://cafedelites.com/wp-content/uploads/2018/02/Beef-Bourguignon-IMAGE-36-500x500.jpg)
 
 #  Beef Bourguignon
 
-Uncategorized
-
-  
 **Prep** 15 mins  
-**Cook** 3 hrs
+**Cook** 3 hrs  
 **Source:** [Cafedelites.com](https://cafedelites.com/wprm_print/49336)
 
 ###  Ingredients
 
-  *  
-**1** tablespoons extra-virgin olive oil
-  *   
-**6** ounces (170g) bacon, roughly chopped
-  *   
-**3** pounds (1 1/2 kg) beef brisket, trimmed of fat (chuck steak or stewing beef) cut into 2-inch chunks
-  *   
-**1** large carrot sliced 1/2-inch thick
-  *   
-**1** large white onion, diced
-  *   
-**6** cloves garlic, minced (divided)
-  *   
-**1** pinch coarse salt and freshly ground pepper
-  *   
-**2** tablespoons flour
-  *   
-**12** small pearl onions (optional)
-  *   
-**3** cups red wine like Merlot, Pinot Noir, or a Chianti -- for a milder sauce, use only 2 cups of wine
-  *   
-**2-3** cups beef stock (if using 2 cups of wine, use 3 cups beef stock)
-  *   
-**2** tablespoons tomato paste
-  *   
-**1** beef bullion cube, crushed
-  *   
-**1** teaspoon fresh thyme, finely chopped
-  *   
-**2** tablespoons fresh parsley, finely chopped (divided)
-  *   
-**2** bay leaves
-  *   
-**1** pound fresh small white or brown mushrooms, quartered
-  *   
-**2** tablespoons butter
+  *  **1** tablespoons extra-virgin olive oil
+  *  **6** ounces (170g) bacon, roughly chopped
+  *  **3** pounds (1 1/2 kg) beef brisket, trimmed of fat (chuck steak or stewing beef) cut into 2-inch chunks
+  *  **1** large carrot sliced 1/2-inch thick
+  *  **1** large white onion, diced
+  *  **6** cloves garlic, minced (divided)
+  *  **1** pinch coarse salt and freshly ground pepper
+  *  **2** tablespoons flour
+  *  **12** small pearl onions (optional)
+  *  **3** cups red wine like Merlot, Pinot Noir, or a Chianti -- for a milder sauce, use only 2 cups of wine
+  *  **2-3** cups beef stock (if using 2 cups of wine, use 3 cups beef stock)
+  *  **2** tablespoons tomato paste
+  *   **1** beef bullion cube, crushed
+  *   **1** teaspoon fresh thyme, finely chopped
+  *   **2** tablespoons fresh parsley, finely chopped (divided)
+  *   **2** bay leaves
+  *   **1** pound fresh small white or brown mushrooms, quartered
+  *   **2** tablespoons butter
 
 ###  Directions
 
