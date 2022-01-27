@@ -1,45 +1,29 @@
-﻿
-
-[![](./images/27f18983-f556-472e-b837-d7b367da5d8a.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-
-_Food_Category_Prod/379/587/0237454_854x480.jpg)
+[![](./images/27f18983-f556-472e-b837-d7b367da5d8a.jpg)](http://images.scrippsnetworks.com/up/tp/Scripps_-_Food_Category_Prod/379/587/0237454_854x480.jpg)
 
 #  Low-Fat Gumbo
 
-Uncategorized
 
-  
 **Prep** 15 mins  
 **Cook** 30 mins  
-**Makes** Servings 6-8
+**Makes** Servings 6-8  
 **Source:** [Food.com](http://www.food.com/recipe/low-fat-gumbo-327965)
 
 ###  Ingredients
 
-  *  
-**1** tablespoon extra spicy seasoning mix, I ended up adding lots more
-  *   
-**1** vidalia onion
-  *   
-**2** stalks celery, chopped
-  *   
-**1** bell pepper, chopped (any color)
-  *   
-**2** garlic cloves
-  *   
-**14** ounces chicken broth
-  *   
-**28** ounces stewed tomatoes
-  *   
-**1** lb shrimp, and or 1 lb chicken
+  *  **1** tablespoon extra spicy seasoning mix, I ended up adding lots more
+  *   **1** vidalia onion
+  *   **2** stalks celery, chopped
+  *   **1** bell pepper, chopped (any color)
+  *   **2** garlic cloves
+  *   **14** ounces chicken broth
+  *   **28** ounces stewed tomatoes
+  *   **1** lb shrimp, and or 1 lb chicken
   * pepper
   * salt
   * garlic powder
-  *   
-**1** cup okra (optional)
-  *   
-**1/2** cup corn (optional)
-  *   
-**1** teaspoon hot sauce (more or less)
+  *   **1** cup okra (optional)
+  *   **1/2** cup corn (optional)
+  *   **1** teaspoon hot sauce (more or less)
 
 ###  Directions
 
