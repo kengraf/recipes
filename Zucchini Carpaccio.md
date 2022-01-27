@@ -1,35 +1,22 @@
-﻿
-
-[![](./images/91df1696-c80a-4907-ab2e-3fc699f41283.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8c9ab63232_-_zucchini-
-carpaccio-0610-recipe-lgn.jpg)
+[![](./images/91df1696-c80a-4907-ab2e-3fc699f41283.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8c9ab63232_-_zucchini-carpaccio-0610-recipe-lgn.jpg)
 
 #  Zucchini Carpaccio
 
-Uncategorized
 
-  
 **Cook** 0:35  
 **Makes** Yield: 4 side-dish servings  
-**Difficulty** Easy
-**Source:** [Delish.com](http://www.delish.com/cooking/recipe-
-ideas/recipes/a30934/zucchini-carpaccio-recipe-ghk0610/)
+**Difficulty** Easy  
+**Source:** [Delish.com](http://www.delish.com/cooking/recipe-ideas/recipes/a30934/zucchini-carpaccio-recipe-ghk0610/)
 
 ###  Ingredients
 
-  *  
-**1** whole lemon
-  *   
-**2** tbsp. Extra virgin olive oil
-  *   
-**.13** tsp. salt
-  *   
-**.13** tsp. Freshly ground black pepper
-  *   
-**2** large zucchini
-  *   
-**1** ripe avocado
-  *   
-**¼** c. salted roasted almonds
+  *   **1** whole lemon
+  *   **2** tbsp. Extra virgin olive oil
+  *   **.13** tsp. salt
+  *   **.13** tsp. Freshly ground black pepper
+  *   **2** large zucchini
+  *   **1** ripe avocado
+  *   **¼** c. salted roasted almonds
 
 ###  Directions
 
