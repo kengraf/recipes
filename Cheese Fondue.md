@@ -1,41 +1,30 @@
-﻿
-
 [![](./images/f02dce6f-d652-4f16-9103-822143358af4.jpg)](http://assets.epicurious.com/photos/560de51ef9a84192308a7a9d/1:1/w_600%2Ch_600/231492.jpg)
 
 #  Cheese Fondue
 
-Uncategorized
-
-  
 **Prep** 30 min  
 **Cook** 30 min  
-**Makes** 6 servings
+**Makes** 6 servings  
 **Source:** [Epicurious.com](http://www.epicurious.com/recipes/food/views/cheese-
 fondue-231492)
 
 ###  Ingredients
 
-  *  
-**1** garlic clove, halved crosswise
-  *   
-**1 1/2** cups dry white wine
-  *   
-**1** tablespoon cornstarch
-  *   
-**2** teaspoons kirsch (optional)
-  *   
-**1/2** pound Emmental cheese, coarsely grated (2 cups)
-  *   
-**1/2** pound Gruyère, coarsely grated (2 cups)
-  *   
-**What to dip:**
+  *  **1** garlic clove, halved crosswise
+  *  **1 1/2** cups dry white wine
+  *  **1** tablespoon cornstarch
+  *  **2** teaspoons kirsch (optional)
+  *  **1/2** pound Emmental cheese, coarsely grated (2 cups)
+  *  **1/2** pound Gruyère, coarsely grated (2 cups)
+
+#### What to dip:
   * Cubes of French bread
   * Cubes of apple and pear
   * Roasted potatoes
   * Julienned raw red bell pepper
   * Blanched broccoli florets
-  *   
-**What to drink:**
+
+#### What to drink:
   * Dry white wine such as dry Riesling or Sancerre
   * German lager or Saison-style ale
   * Farmhouse cider
