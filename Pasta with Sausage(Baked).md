@@ -1,6 +1,6 @@
 ![](./images/0d1ba62e-64ba-4531-9ff6-a3d5bc7749ae.jpg)
 
-#  Baked Pasta with Sausage
+#  Pasta with Sausage(Baked)
 
  **Prep** 15  
  **Cook** 45  
