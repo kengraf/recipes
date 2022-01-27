@@ -1,10 +1,6 @@
-﻿
-
 #  Ham and Butternut Squash Hash
 
-Uncategorized
 
-  
 **Prep** 15 min  
 **Cook** 15 min  
 **Makes** 4  
@@ -12,22 +8,14 @@ Uncategorized
 
 ###  Ingredients
 
-  *  
-**1** butternut squash, peeled and cubed
-  *   
-**2** cups pre-cooked ham, cubed;
-  *   
-**1** leek, sliced;
-  *   
-**1** green apple, peeled and cubed;
-  *   
-**1** onion, sliced;
-  *   
-**2** garlic cloves, minced;
-  *   
-**1** tsp. paprika;
-  *   
-**1** tsp. ground cinnamon;
+  *  **1** butternut squash, peeled and cubed
+  *   **2** cups pre-cooked ham, cubed;
+  *   **1** leek, sliced;
+  *   **1** green apple, peeled and cubed;
+  *   **1** onion, sliced;
+  *   **2** garlic cloves, minced;
+  *   **1** tsp. paprika;
+  *   **1** tsp. ground cinnamon;
   * Cooking fat;
   * Sea salt and freshly ground black pepper;
   * Preparation
