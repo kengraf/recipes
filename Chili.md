@@ -1,30 +1,33 @@
-2 tablespoons olive oil
-1 large yellow or red onion, finely chopped
- Kosher salt
-2 pounds ground beef, 80 percent lean, 20 percent fat
-8 garlic cloves, finely chopped
-1 (6-ounce) can tomato paste
-1 tablespoon sweet paprika
-2 teaspoons chipotle powder
-2 teaspoons ground cumin
-2 teaspoons garlic powder
-2 teaspoons onion powder
-2 teaspoons mustard powder
-2 teaspoons hot smoked paprika
-½ teaspoon cayenne powder
-½ teaspoon ground cinnamon
-¼ teaspoon ground cloves
-12 ounces (1 1/2 cups) pilsner beer, such as Modelo Especial
-1 (14-ounce) can diced or crushed tomatoes in juice
-¼ cup cider vinegar
-2 tablespoons maple syrup or dark brown sugar
-2 tablespoons soy sauce
-2 teaspoons beef stock bouillon paste, such as Better Than Bouillon
-1 ½ teaspoons unsweetened cocoa powder
-2 (14-ounce) cans kidney beans, drained and rinsed
-2 (14-ounce) cans pinto beans, drained and rinsed
-1 tablespoon Worcestershire sauce
- Hot sauce, grated sharp Cheddar, sliced scallions, sour cream and crushed tortilla chips, for serving
+![](./images/sd-slow-cooker-chili-articleLarge.jpg)
+
+## INGREDIENTS
+- 2 tablespoons olive oil
+- 1 large yellow or red onion, finely chopped
+- Kosher salt
+- 2 pounds ground beef, 80 percent lean, 20 percent fat
+- 8 garlic cloves, finely chopped
+- 1 (6-ounce) can tomato paste
+- 1 tablespoon sweet paprika
+- 2 teaspoons chipotle powder
+- 2 teaspoons ground cumin
+- 2 teaspoons garlic powder
+- 2 teaspoons onion powder
+- 2 teaspoons mustard powder
+- 2 teaspoons hot smoked paprika
+- ½ teaspoon cayenne powder
+- ½ teaspoon ground cinnamon
+- ¼ teaspoon ground cloves
+- 12 ounces (1 1/2 cups) pilsner beer, such as Modelo Especial
+- 1 (14-ounce) can diced or crushed tomatoes in juice
+- ¼ cup cider vinegar
+- 2 tablespoons maple syrup or dark brown sugar
+- 2 tablespoons soy sauce
+- 2 teaspoons beef stock bouillon paste, such as Better Than Bouillon
+- 1 ½ teaspoons unsweetened cocoa powder
+- 2 (14-ounce) cans kidney beans, drained and rinsed
+- 2 (14-ounce) cans pinto beans, drained and rinsed
+- 1 tablespoon Worcestershire sauce
+- Toppings: Hot sauce, grated sharp Cheddar, sliced scallions, sour cream and crushed tortilla chips, for serving
  
  ### Directions
 * Heat the oil in a large Dutch oven over medium. Add the onion, season with salt, and cook, stirring occasionally, until the onion is softened and translucent, about 8 minutes. 
