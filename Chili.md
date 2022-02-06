@@ -1,4 +1,4 @@
-![](./images/sd-slow-cooker-chili-articleLarge.jpg)
+<img src="./images/sd-slow-cooker-chili-articleLarge.jpg" width="200"/>
 
 ## INGREDIENTS
 - 2 tablespoons olive oil
