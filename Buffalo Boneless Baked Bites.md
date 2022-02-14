@@ -1,16 +1,15 @@
-[![](./images/buffalo-chicken-thighs-featured-150x150.png.jpg)]()
+[![](./images/buffalo-chicken-thighs-featured-150x150.png.jpg)
 
 #  Baked Boneless Buffalo Bites
 
 **Prep** 20 minutes  
-**Cook** 45 minutes  
-**Makes** Servings 6 servings  
-**Source:** [Dinneratthezoo.com](https://www.dinneratthezoo.com/baked-buffalo-
-wings/)
+**Cook** 25 minutes  
+**Makes** Servings 4 servings  
+**Source:** [whollytasteful.com](https://www.whollytasteful.com/buffalo-chicken-thighs/)
 
 ###  Ingredients
 
-  *  6 boneless skinless chicken thighs (about 1–1.5 lbs)
+  * 6 boneless skinless chicken thighs (about 1–1.5 lbs)
   * 2 tablespoons olive oil
   * 2/3 cup hot sauce, such as Frank’s, divided
   * 1 teaspoon garlic powder
