@@ -1,4 +1,4 @@
-[![](./images/buffalo-chicken-thighs-featured-150x150.png.jpg)
+![](./images/buffalo-chicken-thighs-featured-150x150.png)
 
 #  Baked Boneless Buffalo Bites
 
