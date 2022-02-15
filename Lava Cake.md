@@ -1,4 +1,4 @@
-![](ya-molten-lava-cake-articleLarge.jpg)
+![](./images/ya-molten-lava-cake-articleLarge.jpg)
 
 ### INGREDIENTS
 * 3 ounces/85 grams bittersweet chocolate, 70 to 74 percent cacao (not chips), chopped (about 1/2 cup)
