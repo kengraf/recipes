@@ -5,8 +5,7 @@
 **Prep** 20 minutes  
 **Cook** 45 minutes  
 **Makes** Servings 6 servings  
-**Source:** [Dinneratthezoo.com](https://www.dinneratthezoo.com/baked-buffalo-
-wings/)
+**Source:** [Dinneratthezoo.com](https://www.dinneratthezoo.com/baked-buffalo-wings/)
 
 ###  Ingredients
 
