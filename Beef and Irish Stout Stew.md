@@ -1,12 +1,5 @@
-<<<<<<< HEAD
-<<<<<<< HEAD
-﻿
-
-[![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-
-allrecipes.com/userphotos/250x250/377755.jpg)
-=======
 [![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
->>>>>>> c8ac2c2df987d932a75ea0ec0e1f13bb3a95f09b
+[![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
 
 #  Beef and Irish Stout Stew
 
