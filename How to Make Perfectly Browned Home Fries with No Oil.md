@@ -1,25 +1,16 @@
-﻿
-
-[![](./images/640ce718-98e3-4fde-
-bdb6-5325d8b2ad87.jpg)](http://3.bp.blogspot.com/-L8hx1r6JApY/T-qhqo0iJGI/AAAAAAAABA4/8R_gfRbsi7w/s400/pot%2B3.jpg)
+[![](./images/640ce718-98e3-4fde-bdb6-5325d8b2ad87.jpg)](http://3.bp.blogspot.com/-L8hx1r6JApY/T-qhqo0iJGI/AAAAAAAABA4/8R_gfRbsi7w/s400/pot%2B3.jpg)
 
 #  How to Make Perfectly Browned Home Fries with No Oil
 
-Uncategorized
 
-**Source:** [Eatfoodasmuchasyoulikeallplants.blogspot.com](http://eatfoodasmuchasyoulikeallplants.blogspot.com/2012/06/how-
-to-make-perfectly-browned-home.html)
+**Source:** [Eatfoodasmuchasyoulikeallplants.blogspot.com](http://eatfoodasmuchasyoulikeallplants.blogspot.com/2012/06/how-to-make-perfectly-browned-home.html)
 
 ###  Ingredients
 
-  *  
-**3-4** medium sized Potatoes
-  *   
-**1/2** Bell pepper diced
-  *   
-**1/2** onion diced
-  *   
-**3-4** cloves of garlic minced
+  *  **3-4** medium sized Potatoes
+  *   **1/2** Bell pepper diced
+  *   **1/2** onion diced
+  *   **3-4** cloves of garlic minced
   * A sprig of fresh rosemary coarsely chopped
   * Salt
   * Pepper

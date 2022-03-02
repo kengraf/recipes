@@ -1,47 +1,26 @@
-﻿
-
 #  Herbed Chicken and Spinach Meatballs
 
-Uncategorized
-
-  
 **Prep** 1 hour  
-**Makes** 4
-**Source:** [https://cooking.nytimes.com/recipes/1021769-herbed-chicken-and-
-spinach-meatballs?action=click&module;=RecipeBox&pgType;=recipebox-
-page&region;=all&rank;=1](https://cooking.nytimes.com/recipes/1021769-herbed-
-chicken-and-spinach-meatballs?action=click&module=RecipeBox&pgType=recipebox-
-page&region=all&rank=1)
+**Makes** 4  
+**Source:** [https://cooking.nytimes.com/recipes/1021769-herbed-chicken-and-spinach-meatballs?action=click&module;=RecipeBox&pgType;=recipebox-page&region;=all&rank;=1](https://cooking.nytimes.com/recipes/1021769-herbed-chicken-and-spinach-meatballs?action=click&module=RecipeBox&pgType=recipebox-page&region=all&rank=1)
 
 ###  Ingredients
 
-  *  
-**1** pound spinach, washed
-  *   
-**1 ½** pounds ground chicken
-  *   
-**2** teaspoons kosher salt
-  *   
-**½** teaspoon black pepper
-  *   
-**½** teaspoon lemon zest
+  *  **1** pound spinach, washed
+  *   **1 ½** pounds ground chicken
+  *   **2** teaspoons kosher salt
+  *   **½** teaspoon black pepper
+  *   **½** teaspoon lemon zest
   * Pinch of ground cayenne
   * Pinch of ground nutmeg
-  *   
-**½** teaspoon crushed fennel seeds
+  *   **½** teaspoon crushed fennel seeds
   * Pinch of ground cinnamon
-  *   
-**1** cup roughly chopped cilantro leaves and tender stems
-  *   
-**1** serrano chile, with seeds, finely chopped
-  *   
-**1** egg, beaten
-  *   
-**1** cup soft fresh bread crumbs, from about 4 slices of crustless sandwich bread
-  *   
-**½** cup heavy cream, half-and-half or milk
-  
-
+  *   **1** cup roughly chopped cilantro leaves and tender stems
+  *   **1** serrano chile, with seeds, finely chopped
+  *   **1** egg, beaten
+  *   **1** cup soft fresh bread crumbs, from about 4 slices of crustless sandwich bread
+  *   **½** cup heavy cream, half-and-half or milk
+ 
   * Lime or lemon wedges, for serving
 
 ###  Directions

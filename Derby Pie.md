@@ -1,35 +1,22 @@
-﻿
-
 #  Derby Pie
 
-Uncategorized
-
-  
+ 
 **Prep** 5  
 **Cook** 45  
 **Difficulty** Easy
 
 ###  Ingredients
 
-  *  
-**1/2** cup flour
-  *   
-**1** cup sugar
-  *   
-**2** eggs, beaten
-  *   
-**1/2** cup melted butter
-  *   
-**2** tablespoons Kentucky bourbon
-  *   
-**1** cup chopped walnuts
-  *   
-**1 1/4** cup semi-sweet chocolate chips
-  *   
-**1** teaspoon vanilla extract
+  *  **1/2** cup flour
+  *   **1** cup sugar
+  *   **2** eggs, beaten
+  *   **1/2** cup melted butter
+  *   **2** tablespoons Kentucky bourbon
+  *   **1** cup chopped walnuts
+  *   **1 1/4** cup semi-sweet chocolate chips
+  *   **1** teaspoon vanilla extract
   * pinch of salt
-  *   
-**1** ready-made piecrust
+  *   **1** ready-made piecrust
   
 
 ###  Directions

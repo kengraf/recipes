@@ -1,27 +1,18 @@
-﻿
-
 #  Oatmeal Kinlock
 
-Uncategorized
+**Source:** [foodanddrink.scotsman.com](https://foodanddrink.scotsman.com/recipes/traditional-scottish-recipe-pinhead-oat-porridge/)
 
-  
 **Prep** overnight
 
 ###  Ingredients
 
-  *  
-**1.5** cups of pinhead oatmeal 
-  *  
-**1** cup of milk
-  *   
-**1.5** tblsp of butter
-  *   
-**2.5** of caster sugar
+  *  **1.5** cups of pinhead oatmeal 
+  *  **1** cup of milk
+  *  **1.5** tblsp of butter
+  *   **2.5** of caster sugar
   * 1 pinch of ground nutmeg 
-  *  
-**1** pinch of ground cinnamon
-  *   
-**50** ml of double cream
+  *  **1** pinch of ground cinnamon
+  *  **50** ml of double cream
   
   
 

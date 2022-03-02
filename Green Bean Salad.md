@@ -1,43 +1,26 @@
-﻿
-
-[![](./images/8a9d4fed-b345-4663-9826-3157d5b278ef.jpg)](http://wdy.h-cdn.co/assets/15/25/768x384/landscape-1434751393-green-
-bean-salad.jpg)
+[![](./images/8a9d4fed-b345-4663-9826-3157d5b278ef.jpg)](http://wdy.h-cdn.co/assets/15/25/768x384/landscape-1434751393-green-bean-salad.jpg)
 
 #  Green Bean Salad
 
-Uncategorized
-
-  
 **Prep** 0:20  
 **Cook** 0:30  
 **Makes** Serves: 8  
-**Difficulty** Easy
-**Source:** [Womansday.com](http://www.womansday.com/food-recipes/food-
-drinks/recipes/a50976/green-bean-salad/)
+**Difficulty** Easy  
+**Source:** [Womansday.com](http://www.womansday.com/food-recipes/food-drinks/recipes/a50976/green-bean-salad/)
 
 ###  Ingredients
 
-  *  
-**2** lb. green beans, trimmed
+  *  **2** lb. green beans, trimmed
   * kosher salt
-  *   
-**1/2** red onion, thinly sliced
-  *   
-**1** tbsp. rice vinegar
-  *   
-**2** tbsp. Soy Sauce
-  *   
-**1** tsp. honey
-  *   
-**1** tsp. Sriracha or other hot sauce
-  *   
-**1** tbsp. peanut oil
-  *   
-**1** pt. Grape tomatoes, halved
-  *   
-**1/2** c. cilantro, chopped
-  *   
-**1/4** c. peanuts, chopped, plus more for garnish
+  *   **1/2** red onion, thinly sliced
+  *   **1** tbsp. rice vinegar
+  *   **2** tbsp. Soy Sauce
+  *   **1** tsp. honey
+  *   **1** tsp. Sriracha or other hot sauce
+  *   **1** tbsp. peanut oil
+  *   **1** pt. Grape tomatoes, halved
+  *   **1/2** c. cilantro, chopped
+  *   **1/4** c. peanuts, chopped, plus more for garnish
 
 ###  Directions
 

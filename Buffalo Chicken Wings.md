@@ -1,53 +1,29 @@
-﻿
-
-[![](./images/3594e97f-8562-4e50-b9de-0474be18aa3b.jpg)](https://assets.epicurious.com/photos/5761c748ff66dde1456dfec0/2:1/w_1260%2Ch_630/crispy-
-baked-chicken-wings.jpg)
+[![](./images/3594e97f-8562-4e50-b9de-0474be18aa3b.jpg)](https://assets.epicurious.com/photos/5761c748ff66dde1456dfec0/2:1/w_1260%2Ch_630/crispy-baked-chicken-wings.jpg)
 
 #  Buffalo Chicken Wings
 
-Uncategorized
-
-  
 **Prep** 20 minutes  
 **Cook** 1 hour 10 minutes  
-**Makes** About 60
-**Source:** [Epicurious.com](https://www.epicurious.com/recipes/food/views/crispy-
-baked-chicken-wings-388693)
+**Makes** About 60  
+**Source:** [Epicurious.com](https://www.epicurious.com/recipes/food/views/crispy-baked-chicken-wings-388693)
 
 ###  Ingredients
 
-  *  
-**Buffalo sauce:**
-  *   
-**1** tablespoon unsalted butter, melted
-  *   
-**1/4** teaspoon cayenne pepper
-  *   
-**1/4** teaspoon freshly ground black pepper
-  *   
-**1/4** teaspoon kosher salt
-  *   
-**1/4** cup hot pepper sauce (such as Frank's)
-  *   
-**Ginger-soy glaze:**
-  *   
-**1/4** cup honey
-  *   
-**2** tablespoons soy sauce
-  *   
-**3** large garlic cloves, crushed
-  *   
-**1 2** x1" piece of ginger, peeled, sliced
-  *   
-**Wings:**
-  *   
-**5** pounds chicken wings, tips removed, drumettes and flats separated
-  *   
-**2** tablespoons vegetable oil
-  *   
-**1** tablespoon kosher salt
-  *   
-**1/2** teaspoon freshly ground black pepper
+  *  **Buffalo sauce:**
+  *  **1** tablespoon unsalted butter, melted
+  *  **1/4** teaspoon cayenne pepper
+  *  **1/4** teaspoon freshly ground black pepper
+  *  **1/4** teaspoon kosher salt
+  *  **1/4** cup hot pepper sauce (such as Frank's)
+  *  **Ginger-soy glaze:**
+  *  **1/4** cup honey
+  *  **2** tablespoons soy sauce
+  *  **3** large garlic cloves, crushed
+  *  **1 2** x1" piece of ginger, peeled, sliced
+  *  **Wings: 5** pounds chicken wings, tips removed, drumettes and flats separated
+  *   **2** tablespoons vegetable oil
+  *   **1** tablespoon kosher salt
+  *   **1/2** teaspoon freshly ground black pepper
 
 ###  Directions
 

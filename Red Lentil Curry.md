@@ -1,47 +1,27 @@
-﻿
-
-[![](./images/55f007ca-b95a-4fb4-96a0-99abb022d42a.jpg)](http://images.media-
-allrecipes.com/userphotos/720x405/490284.jpg)
+[![](./images/55f007ca-b95a-4fb4-96a0-99abb022d42a.jpg)](http://images.media-allrecipes.com/userphotos/720x405/490284.jpg)
 
 #  Red Lentil Curry
 
-Uncategorized
-
-  
 **Prep** 10 m  
 **Cook** 30 m  
-**Makes** 8
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/16641/red-lentil-
-curry/)
+**Makes** 8  
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/16641/red-lentil-curry/)
 
 ###  Ingredients
 
-  *  
-**2** cups red lentils
-  *   
-**1** large onion, diced
-  *   
-**1** tablespoon vegetable oil
-  *   
-**2** tablespoons curry paste
-  *   
-**1** tablespoon curry powder
-  *   
-**1** teaspoon ground turmeric
-  *   
-**1** teaspoon ground cumin
-  *   
-**1** teaspoon chili powder
-  *   
-**1** teaspoon salt
-  *   
-**1** teaspoon white sugar
-  *   
-**1** teaspoon minced garlic
-  *   
-**1** teaspoon minced fresh ginger
-  *   
-**1** (14.25 ounce) can tomato puree
+  *  **2** cups red lentils
+  *   **1** large onion, diced
+  *   **1** tablespoon vegetable oil
+  *   **2** tablespoons curry paste
+  *   **1** tablespoon curry powder
+  *   **1** teaspoon ground turmeric
+  *   **1** teaspoon ground cumin
+  *   **1** teaspoon chili powder
+  *   **1** teaspoon salt
+  *   **1** teaspoon white sugar
+  *   **1** teaspoon minced garlic
+  *   **1** teaspoon minced fresh ginger
+  *   **1** (14.25 ounce) can tomato puree
 
 ###  Directions
 

@@ -1,46 +1,34 @@
 <<<<<<< HEAD
+<<<<<<< HEAD
 ﻿
 
 [![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-
 allrecipes.com/userphotos/250x250/377755.jpg)
+=======
+[![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
+>>>>>>> c8ac2c2df987d932a75ea0ec0e1f13bb3a95f09b
 
 #  Beef and Irish Stout Stew
 
-Uncategorized
-
-  
 **Prep** 30 m  
 **Cook** 3 h  
-**Makes** 6
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/70298/beef-and-irish-
-stout-stew/)
+**Makes** 6  
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/70298/beef-and-irish-stout-stew/)
 
 ###  Ingredients
 
-  *  
-**2** pounds lean beef stew meat, cut into 1-inch cubes
-  *   
-**3** tablespoons vegetable oil, divided
-  *   
-**2** tablespoons all-purpose flour
-  *   
-**1** pinch salt and ground black pepper to taste
-  *   
-**1** pinch cayenne pepper
-  *   
-**2** large onions, chopped
-  *   
-**1** clove garlic, crushed
-  *   
-**2** tablespoons tomato paste
-  *   
-**1 1/2** cups Irish stout beer (such as Guinness®)
-  *   
-**2** cups chopped carrot
-  *   
-**1** sprig fresh thyme
-  *   
-**1** tablespoon chopped fresh parsley for garnish
+  *  **2** pounds lean beef stew meat, cut into 1-inch cubes
+  *  **3** tablespoons vegetable oil, divided
+  *  **2** tablespoons all-purpose flour
+  *  **1** pinch salt and ground black pepper to taste
+  *  **1** pinch cayenne pepper
+  *  **2** large onions, chopped
+  *  **1** clove garlic, crushed
+  *  **2** tablespoons tomato paste
+  *  **1 1/2** cups Irish stout beer (such as Guinness®)
+  *  **2** cups chopped carrot
+  *  **1** sprig fresh thyme
+  *  **1** tablespoon chopped fresh parsley for garnish
 
 ###  Directions
 

@@ -1,42 +1,23 @@
-﻿
-
-[![](./images/6440b5c8-945b-4d24-9052-328dbbe88f0f.jpg)](https://static01.nyt.com/images/2020/03/26/dining/as-
-turmeric-
-chicken/merlin_170459076_be9517b6-6c9d-47f1-bb27-843d6c777088-articleLarge.jpg)
+[![](./images/6440b5c8-945b-4d24-9052-328dbbe88f0f.jpg)](https://static01.nyt.com/images/2020/03/26/dining/as-turmeric-chicken/merlin_170459076_be9517b6-6c9d-47f1-bb27-843d6c777088-articleLarge.jpg)
 
 #  Turmeric-Black Pepper Chicken with Asparagus
 
-Uncategorized
-
-  
 **Cook** 15 minutes  
-**Makes** Yield 4 servings
-**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1020970-turmeric-
-black-pepper-chicken-with-
-asparagus?action=click&module=RecipeBox&pgType=recipebox-
-page&region=all&rank=0)
+**Makes** Yield 4 servings  
+**Source:** [Cooking.nytimes.com](https://cooking.nytimes.com/recipes/1020970-turmeric-black-pepper-chicken-with-asparagus?action=click&module=RecipeBox&pgType=recipebox-page&region=all&rank=0)
 
 ###  Ingredients
 
-  *  
-**3** tablespoons honey
-  *   
-**¾** teaspoon black pepper, plus more to taste
+  *   **3** tablespoons honey
+  *   **¾** teaspoon black pepper, plus more to taste
   * Kosher salt
-  *   
-**2** tablespoons all-purpose flour
-  *   
-**1 ½** teaspoons ground turmeric
-  *   
-**1** pound boneless, skinless chicken thighs, cut into 1-inch pieces
-  *   
-**1** tablespoon coconut or canola oil
-  *   
-**12** ounces asparagus, trimmed and thinly sliced on an angle
-  *   
-**1** teaspoon unseasoned rice vinegar or soy sauce
-  *   
-**1** lime, cut into wedges (optional)
+  *   **2** tablespoons all-purpose flour
+  *   **1 ½** teaspoons ground turmeric
+  *   **1** pound boneless, skinless chicken thighs, cut into 1-inch pieces
+  *   **1** tablespoon coconut or canola oil
+  *   **12** ounces asparagus, trimmed and thinly sliced on an angle
+  *   **1** teaspoon unseasoned rice vinegar or soy sauce
+  *   **1** lime, cut into wedges (optional)
 
 ###  Directions
 

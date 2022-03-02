@@ -1,47 +1,29 @@
-﻿
-
 [![](./images/7b6242f7-2d6c-45fe-a6ec-7417d9b7b915.jpg)](http://assets.eatingwell.com/sites/default/files/imagecache/standard/recipes/MV7206.JPG)
 
 #  Vegetarian Taco Salad
 
-Uncategorized
 
-  
 **Prep** 40 minutes  
 **Cook** 40 minutes  
-**Makes** 6 servings
+**Makes** 6 servings  
 **Source:** [Eatingwell.com](http://www.eatingwell.com/recipes/vegetarian_taco_salad.html)
 
 ###  Ingredients
 
-  *  
-**2** tablespoons extra-virgin olive oil
-  *   
-**1** large onion, chopped
-  *   
-**1 1/2** cups fresh corn kernels (see Tip) or frozen, thawed
-  *   
-**4** large tomatoes
-  *   
-**1 1/2** cups cooked long-grain brown rice (see Tip)
-  *   
-**1 15** -ounce can black, kidney or pinto beans, rinsed
-  *   
-**1** tablespoon chili powder
-  *   
-**1 1/2** teaspoons dried oregano, divided
-  *   
-**1/4** teaspoon salt
-  *   
-**1/2** cup chopped fresh cilantro
-  *   
-**1/3** cup prepared salsa
-  *   
-**2** cups shredded iceberg or romaine lettuce
-  *   
-**1** cup shredded pepper Jack cheese
-  *   
-**2 1/2** cups coarsely crumbled tortilla chips
+  *   **2** tablespoons extra-virgin olive oil
+  *   **1** large onion, chopped
+  *   **1 1/2** cups fresh corn kernels (see Tip) or frozen, thawed
+  *   **4** large tomatoes
+  *   **1 1/2** cups cooked long-grain brown rice (see Tip)
+  *   **1 15** -ounce can black, kidney or pinto beans, rinsed
+  *   **1** tablespoon chili powder
+  *   **1 1/2** teaspoons dried oregano, divided
+  *   **1/4** teaspoon salt
+  *   **1/2** cup chopped fresh cilantro
+  *   **1/3** cup prepared salsa
+  *   **2** cups shredded iceberg or romaine lettuce
+  *   **1** cup shredded pepper Jack cheese
+  *   **2 1/2** cups coarsely crumbled tortilla chips
   * Lime wedges for garnish
 
 ###  Directions

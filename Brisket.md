@@ -1,35 +1,19 @@
-﻿
-
 ![](./images/0e9f3922-40e2-411e-9a06-6553293d5f41.jpg)
 
 #  Brisket
 
-Uncategorized
-
-  
 **Prep** 5  
 **Cook** 4 hours  
 **Makes** 4  
-**Difficulty** Easy
-**Source:** [https://www.nytimes.com/2019/12/16/t-magazine/brisket-recipe-
-batsheva-
-hay.html?action=click&module;=Editors%20Picks&pgtype;=Homepage](https://www.nytimes.com/2019/12/16/t-magazine/brisket-
-recipe-batsheva-hay.html?action=click&module=Editors%20Picks&pgtype=Homepage)
+**Difficulty** Easy  
+**Source:** [https://www.nytimes.com/2019/12/16/t-magazine/brisket-recipe-batsheva-
+hay.html?action=click&module;=Editors%20Picks&pgtype;=Homepage](https://www.nytimes.com/2019/12/16/t-magazine/brisket-recipe-batsheva-hay.html?action=click&module=Editors%20Picks&pgtype=Homepage)
 
 ###  Ingredients
 
-  *  
-**2** -pound first-cut brisket
-  
-
-  *   
-**4** large white onions
-  
-
-  *   
-**1** teaspoon olive oil
-  
-
+  *  **2** -pound first-cut brisket
+  *  **4** large white onions
+  *  **1** teaspoon olive oil
   * Paprika, salt and pepper to taste
 
 ###  Directions
@@ -50,3 +34,6 @@ to the top of the pan. Cover with lid and turn down to a simmer.
 
 5\. Slice and serve brisket immediately; it’s great with rice.
 
+### Note for French Onion Soup
+Remaining onions and broth make a great base for soup.  
+Heat the broiler, and arrange individual ovenproof casseroles on a baking sheet. Ladle soup into casseroles, and cover top with bread slices. Sprinkle each casserole generously with Gruyère. Broil for a minute or two, watching carefully, until cheese melts and browns. Serve immediately.

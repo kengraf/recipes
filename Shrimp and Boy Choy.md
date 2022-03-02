@@ -1,48 +1,26 @@
-﻿
+[![](./images/e9428530-41b1-48b0-827d-af28cec1a0d6.jpg)](http://www.mindfood.com/wp-content/themes/mindfood-theme/timthumb.php?src=http:%2F%2Fwww.mindfood.com%2Fwp-content%2Fuploads%2F2013%2F02%2F49dd899f-ea37-447e-9cc3-7d4c70945dc3.jpg&w=300&h=&zc=0)
 
-[![](./images/e9428530-41b1-48b0-827d-af28cec1a0d6.jpg)](http://www.mindfood.com/wp-
-content/themes/mindfood-
-theme/timthumb.php?src=http:%2F%2Fwww.mindfood.com%2Fwp-
-content%2Fuploads%2F2013%2F02%2F49dd899f-ea37-447e-9cc3-7d4c70945dc3.jpg&w=300&h=&zc=0)
+#   Shrimp and Boy Choy
 
-#  Bok Choy
 
-Uncategorized
-
-  
-**Source:** [Mindfood.com](http://www.mindfood.com/recipe/bok-choy-asian-
-greens-autumn-recipes/)
+**Source:** [Mindfood.com](http://www.mindfood.com/recipe/bok-choy-asian-greens-autumn-recipes/)
 
 ###  Ingredients
 
-  * SHRIMP WITH CHINESE GREENS STIR FRY
-  *   
-**1/2** – 3/4 pound shrimp
-  *   
-**1** tablespoon Chinese rice wine or dry sherry
-  *   
-**1/2** teaspoon salt
-  *   
-**1** tablespoon cornstarch
-  *   
-**1/2** pound Chinese greens (bok choy)
-  *   
-**4** ounces fresh mushrooms, or 6 Chinese dried mushrooms or dried Shiitake mushrooms
-  *   
-**2** tablespoons vegetable or peanut oil for stir-frying, or as needed
-  *   
-**2** thin slices ginger
-  *   
-**1/4** teaspoon salt
-  *   
-**1/4** cup chicken broth, sodium-reduced if possible
-  *   
-**1/2** teaspoon sugar
-  *   
-**1** tablespoon light soy sauce
+  * **1/2** – 3/4 pound shrimp
+  * **1** tablespoon Chinese rice wine or dry sherry
+  * **1/2** teaspoon salt
+  * **1** tablespoon cornstarch
+  * **1/2** pound Chinese greens (bok choy)
+  * **4** ounces fresh mushrooms, or 6 Chinese dried mushrooms or dried Shiitake mushrooms
+  * **2** tablespoons vegetable or peanut oil for stir-frying, or as needed
+  * **2** thin slices ginger
+  * **1/4** teaspoon salt
+  * **1/4** cup chicken broth, sodium-reduced if possible
+  * **1/2** teaspoon sugar
+  * **1** tablespoon light soy sauce
   * black pepper, to taste
-  *   
-**1** teaspoon cornstarch mixed with 2 teaspoons water
+  * **1** teaspoon cornstarch mixed with 2 teaspoons water
 
 ###  Directions
 

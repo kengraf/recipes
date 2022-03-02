@@ -1,57 +1,45 @@
-﻿
-
-[![](./images/c537d0a3-45d3-4bd9-8afc-4494068cf0ca.jpg)](http://www.marthastewart.com/sites/files/marthastewart.com/styles/wmax-520-highdpi/public/d23/med102963_0607_linguini/med102963_0607_linguini_vert.jpg?itok=jNTe7G-R)
+[![](./images/660f1ef3-0d7b-4741-99bd-596e1ce0c3d5.jpg)](http://images.media-allrecipes.com/userphotos/720x405/3266359.jpg)
 
 #  Linguine with White Clam Sauce
 
-Uncategorized
 
-  
-**Prep** 20 mins  
-**Cook** 35 mins  
-**Makes** Servings: 4
-**Source:** [Marthastewart.com](http://www.marthastewart.com/315602/linguine-
-with-white-clam-sauce)
+**Makes** 5  
+**Difficulty** Easy  
+**Source:** [Allrecipes.com](http://allrecipes.com/recipe/12000/linguine-with-white-clam-sauce-i/?prop26=dailydish&prop28=your%20daily%20recipe_1_1&prop29=title&prop25=62484&prop27=2016-08-30&did=62484&eaid=18400790)
 
 ###  Ingredients
 
-  * Coarse salt
-  *   
-**12** ounces linguine
-  *   
-**3** tablespoons olive oil
-  *   
-**1** medium onion, finely chopped
-  *   
-**4** garlic cloves, thinly sliced
-  *   
-**1/4** teaspoon red-pepper flakes
-  *   
-**3/4** cup dry white wine
-  *   
-**2** pounds small clams (50 to 55), such as Manila, rinsed and scrubbed
-  *   
-**2** tablespoons butter
-  *   
-**1/4** cup fresh parsley, coarsely chopped
+  *  **1** (16 ounce) package linguini pasta
+  *   **1** tablespoon olive oil
+  *   **3** cloves garlic, minced
+  *   **2** (6.5 ounce) cans minced clams, with juice
+  *   **1/4** cup clam juice
+  *   **1** tablespoon chopped fresh parsley
+  * salt to taste
+  * ground black pepper to taste
 
 ###  Directions
 
-In a large pot of salted boiling water, cook pasta 1 minute less than package
-instructions for al dente. Reserve 1/2 cup pasta water; drain pasta. Set
-aside.
+In a large pot with boiling salted water cook linguini pasta until al dente.
 
-While pasta cooks, heat oil over medium in a Dutch oven or 5-quart heavy pot
-with a lid. Add onion, garlic, and red-pepper flakes. Cook, stirring
-occasionally, until onion is soft, 5 to 7 minutes.
+Meanwhile, in a medium sized saucepan using medium heat cook olive oil and
+minced garlic until garlic is translucent. Add chopped clams, clam juice or
+water, and chopped parsley. Add salt and ground black pepper to taste. Bring
+to a boil. Lower heat and simmer for 3 minutes.
 
-Add wine, and bring to a boil; cook, stirring occasionally, until reduced by
-half, about 2 minutes.
+Toss pasta with clam sauce. Serve warm.
 
-Add clams; cover, and simmer, shaking pot occasionally, until clams open wide,
-3 to 5 minutes. (Discard any that havent opened after 5 minutes.)
+###  Nutrition
 
-Add pasta to clam mixture in pot; continue to cook until pasta is al dente,
-about 2 minutes. Remove from heat, and stir in butter and parsley. Add some
-reserved pasta water to thin sauce if necessary; season with salt.
+Calories: 457 kcal
+
+Total Carbohydrates: 69.7g
+
+Cholesterol: 50 mg
+
+Total Fat: 6.2 g
+
+Protein: 31 g
+
+Sodium: 114 mg
 

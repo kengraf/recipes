@@ -1,52 +1,32 @@
 ﻿
 
-[![]./images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
+[![](./images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
 
 #  Bison Chili
 
-Uncategorized
-
-  
 **Prep** 15 mins  
-**Cook** 2 hrs 30 mins
+**Cook** 2 hrs 30 mins  
 **Source:** [Thewoksoflife.com](https://thewoksoflife.com/wprm_print/28053)
 
 ###  Ingredients
 
-  *  
-**1** pound ground bison (450g)
-  *   
-**2** onions
-  *   
-**5** cloves garlic
-  *   
-**2** green bell peppers
-  *   
-**2** jalapeno peppers (de-seeded and finely chopped)
-  *   
-**3** chipotles in adobo sauce (finely chopped)
-  *   
-**6** ounces tomato paste (1 small can, 170g)
-  *   
-**1** teaspoon cumin
-  *   
-**½** teaspoon cayenne pepper
-  *   
-**1** teaspoon smoked paprika
-  *   
-**2** teaspoons salt
-  *   
-**½** teaspoon black pepper
-  *   
-**1** teaspoon sugar
-  *   
-**1** can kidney beans (15 ounce can, rinsed and drained, about 250g rehydrated)
-  *   
-**1** can pinto or pink beans (15 ounce can, rinsed and drained, about 250g rehydrated)
-  *   
-**28** ounces crushed tomatoes (800g)
-  *   
-**3** cups chicken stock (700 ml)
+  *  **1** pound ground bison (450g)
+  *  **2** onions
+  *  **5** cloves garlic
+  *  **2** green bell peppers
+  *  **2** jalapeno peppers (de-seeded and finely chopped)
+  *  **3** chipotles in adobo sauce (finely chopped)
+  *  **6** ounces tomato paste (1 small can, 170g)
+  *  **1** teaspoon cumin
+  *  **½** teaspoon cayenne pepper
+  *  **1** teaspoon smoked paprika
+  *  **2** teaspoons salt
+  *  **½** teaspoon black pepper
+  *  **1** teaspoon sugar
+  *  **1** can kidney beans (15 ounce can, rinsed and drained, about 250g rehydrated)
+  *  **1** can pinto or pink beans (15 ounce can, rinsed and drained, about 250g rehydrated)
+  *  **28** ounces crushed tomatoes (800g)
+  *  **3** cups chicken stock (700 ml)
 
 ###  Directions
 
