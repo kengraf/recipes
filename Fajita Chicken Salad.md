@@ -1,12 +1,5 @@
-<<<<<<< HEAD
-<<<<<<< HEAD
-﻿
 
-[![](./images/c9369b11-f555-46cc-a77f-81629ab6fbcb.jpg)](http://del.h-cdn.co/assets/16/21/980x490/landscape-1464036871-delish-
-summer-salads-chicken-fajita.jpg)
-=======
 [![](./images/c9369b11-f555-46cc-a77f-81629ab6fbcb.jpg)](http://del.h-cdn.co/assets/16/21/980x490/landscape-1464036871-delish-summer-salads-chicken-fajita.jpg)
->>>>>>> c8ac2c2df987d932a75ea0ec0e1f13bb3a95f09b
 
 #  Fajita Chicken Salad
 
