@@ -1,4 +1,4 @@
-[![](./images/fruit-salad-horizontal-jpg-1522181219.jpg)]([http://cdn-image.realsimple.com/sites/default/files/styles/rs_main_image/public/image/images/0812/broccoli-garlic-hazelnuts_300.jpg?itok=ywltZ_O-](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/fruit-salad-horizontal-jpg-1522181219.jpg?crop=1xw:1xh;center,top&resize=768:*)
+[![](./images/fruit-salad-horizontal-jpg-1522181219.jpg)](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/fruit-salad-horizontal-jpg-1522181219.jpg?crop=1xw:1xh;center,top&resize=768:*)
 
 #  Fruit Salad
 
