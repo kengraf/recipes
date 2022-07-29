@@ -1,10 +1,10 @@
-[![](./images/Strawberry-Summer-Salad-002.webp)]([http://cdn-image.realsimple.com/sites/default/files/styles/rs_main_image/public/image/images/0812/broccoli-garlic-hazelnuts_300.jpg?itok=ywltZ_O-](https://www.acouplecooks.com/wp-content/uploads/2019/04/Strawberry-Summer-Salad-002.jpg)
+[![](./images/Strawberry-Summer-Salad-002.webp)](https://www.acouplecooks.com/wp-content/uploads/2019/04/Strawberry-Summer-Salad-002.jpg)
 
 #  Strawberry Spinach Salad
 
 **Prep** 15 min  
 **Cook** 0 min  
-**Makes** Serves 8 4
+**Makes** Serves 4  
 **Source:** [acouplecooks.com](https://www.acouplecooks.com/strawberry-spinach-salad/)
 
 ###  Ingredients
