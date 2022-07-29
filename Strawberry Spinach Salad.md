@@ -9,14 +9,15 @@
 
 ###  Ingredients
 
-For the strawberry vinaigrette salad dressing (makes 1 ¼ cups total)
+#### For the strawberry vinaigrette salad dressing (makes 1 ¼ cups total)
 
 1 ½ cups sliced strawberries  
 2 tablespoons maple syrup  
 2 tablespoons apple cider vinegar  
 ¼ cup olive oil  
 ¼ teaspoon kosher salt  
-For the strawberry spinach salad  
+
+#### For the strawberry spinach salad  
 
 1 cup sliced strawberries  
 1 handful thin sliced red onion  
