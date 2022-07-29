@@ -24,8 +24,6 @@
 1. Cook the corn:   
 Grilled: For grilled corn, heat a grill to medium high heat (375 to 450 degrees Fahrenheit). Shuck the corn. Use your hands to rub oil on each corn cob evenly. Place the corn directly on the grill grates and cook until it begins to blacken, then turn. Cook about 12 to 15 minutes total, until blackened on all sides.  
 
-Sautéed: Use 5 cups fresh or frozen corn kernels and sauté for a minute or two in butter in a medium skillet.  
-
 2. Cut the corn off the cob: Find a bundt pan, or large rimmed baking sheet or pan. Place the corn into the hole in the bundt pan or hold the corn vertically inside the baking sheet, then use a chef’s knife to slice down and remove the corn from the cob. The sides of the pan catch the kernels that fly when cutting. See How to Cut Corn off The Cob for more.  
 
 3. Prep the vegetables: Thinly slice the green onion. Finely chop the cilantro.  
