@@ -4,7 +4,7 @@
 
 **Prep** 15 min  
 **Cook** 0 min  
-**Makes** Serves 4  
+**Serves** 4  
 **Source:** [acouplecooks.com](https://www.acouplecooks.com/strawberry-spinach-salad/)
 
 ###  Ingredients
