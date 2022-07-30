@@ -1,8 +1,8 @@
 #  Summer Shrimp Scampi With Tomatoes and Corn
-
+The scallop side: https://www.wenthere8this.com/scallop-scampi/
 
 **Prep** 15 minutes  
-**Makes** 4
+**Makes** 8
 
 ###  Ingredients
 
