@@ -12,7 +12,7 @@
   *   **2.333** tblsp of caster sugar
   * 1 pinch of ground nutmeg 
   *  **1** pinch of ground cinnamon
-  *  **50** ml of double cream
+  *  **2** oz of double cream
   
   
 
