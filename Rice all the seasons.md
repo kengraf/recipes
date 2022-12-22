@@ -2,6 +2,17 @@
 
 #  A Rice for every season
 
+## Flavors
+[Tomato Scallion](#Tomato Scallion)
+[Herb Lemon Rice](#Herb Lemon Rice)
+[Coconut Rice](#Coconut Rice)
+[Saffron Rice](#Saffron Rice)
+[Mexican Rice](#Mexican Rice)
+[Cilantro Lime Rice](#Cilantro Lime Rice)
+[Pesto Green Rice](#Pesto Green Rice)
+[Turmeric Yellow Rice](#Turmeric Yellow Rice)
+[Spinach Rice](#Spinach Rice)
+
 ### Rice Hints
   *   Pick your rice and follow the directions.
   *   Recipes ASSUME: 1 Cup rice and 2 cups water (substitute chicken or vegetable stock for more flavor)
@@ -14,7 +25,7 @@
   *   Add butter and fluff.
 
 
-##  Tomato Scallion Rice
+## Tomato Scallion Rice
 ###  Ingredients
   *   **½** cup chopped onion
   *   **1** teaspoon minced garlic
@@ -38,15 +49,20 @@ about 10 minutes until the tomatoes have cooked down.
 ½ lemon juiced (after cooking)
 
 ## Coconut Rice
-More rice: 1 1/2 cups
+Note: rice: 1 1/2 cups not 1 cup
 13.5 oz coconut milk (400 mL; full fat)
 1 tablespoon coconut sugar (or brown sugar)
 1/4 teaspoon salt
 2 1/4 cups water
 
-3. Saffron Rice- ¼ cup boiling water, pinch saffron threads (roughly ⅛ tsp), 1 cup basmati rice rinsed, 1 tablespoon coconut oil, ½ teaspoon onion powder, ¼ teaspoon salt, 1 ¾ cup stock (veggie or chicken)
+## Saffron Rice
+1 tablespoon coconut oil (or butter)
+1/4 cup boiling water (1 3/4 stock/water)
+pinch saffron threads (roughly 1/2 tsp)
+1/4 teaspoon onion powder
+1/4 teaspoon salt
 
-## Mexican
+## Mexican Rice
 1 tablespoon coconut oil (or butter)
 1 cup salsa
 1/2 teaspoon cumin
@@ -54,8 +70,24 @@ More rice: 1 1/2 cups
 1/4 teaspoon salt
 
 ## Cilantro Lime Rice
-1/4  teaspoon salt, zest of 1 lime, ½ cup cilantro leaves chopped, juice of ½ a lime (after cooking)
+1/4  teaspoon salt
+zest of 1 lime
+1/2 cup cilantro leaves chopped
+juice of 1/2 a lime (after cooking)
+
 ## Pesto Green Rice
-1/4 cup pesto, fresh basil leaves (to serve), sliced almonds (to serve)
+1/4 cup pesto
+fresh basil leaves (to serve)
+sliced almonds (to serve)
+
 ## Turmeric Yellow Rice
-1/2 teaspoon turmeric, ¼ teaspoon ground ginger, ¼ teaspoon salt, ½ teaspoon onion powder, ½ teaspoon garlic powder
+1/2 teaspoon turmeric
+1/4 teaspoon ground ginger
+1/4 teaspoon salt
+1/2 teaspoon onion powder
+1/2 teaspoon garlic powder
+
+## Spinach Rice
+1/4 teaspoon cayenne pepper
+4 cups spinach rough chopped
+2 tablespoons soy sauce
