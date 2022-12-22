@@ -12,7 +12,7 @@
 [Cilantro Lime](#cilantro-lime-rice)  
 [Pesto Green](#pesto-green-rice)  
 [Turmeric Yellow](#turmeric-yellow-rice)  
-[Spinach](#spinach-rRice)  
+[Spinach](#spinach-rice)  
 
 ### Rice Hints
   *   Pick your rice and follow the directions.
@@ -27,10 +27,10 @@
 
 
 ## Beefy Onion Rice
-1 tablespoon oil
-1 chopped fine onion
-1/2 teaspoon McCormick® Perfect Pinch® Italian Seasoning
-1 can (14 ounces) beef broth
+  *  1 tablespoon oil
+  *  1 chopped fine onion
+  *  ½ teaspoon McCormick® Perfect Pinch® Italian Seasoning
+  *  1 can (14 ounces) beef broth
 
 ## Tomato Scallion Rice
   *   **½** cup chopped onion
@@ -47,53 +47,53 @@ with salt and pepper, and cook over medium heat, stirring occasionally for
 about 10 minutes until the tomatoes have cooked down.
 
 ## Herb Lemon Rice
-1 tablespoon coconut oil (or butter)
-¼ teaspoon salt
-½ lemon zested
-1 teaspoon dried basil
-1 teaspoon dried oregano
-½ lemon juiced (after cooking)
+  *  1 tablespoon coconut oil (or butter)
+  *  ¼ teaspoon salt
+  *  ½ lemon zested
+  *  1 teaspoon dried basil
+  *  1 teaspoon dried oregano
+  *  ½ lemon juiced (after cooking)
 
 ## Coconut Rice
-Note: rice: 1 1/2 cups not 1 cup
-13.5 oz coconut milk (400 mL; full fat)
-1 tablespoon coconut sugar (or brown sugar)
-1/4 teaspoon salt
-2 1/4 cups water
+  *  Note: rice: 1 ½ cups not 1 cup
+  *  13.5 oz coconut milk (400 mL; full fat)
+  *  1 tablespoon coconut sugar (or brown sugar)
+  *  ¼ teaspoon salt
+  *  2 ¼ cups water
 
 ## Saffron Rice
-1 tablespoon coconut oil (or butter)
-1/4 cup boiling water (1 3/4 stock/water)
-pinch saffron threads (roughly 1/2 tsp)
-1/4 teaspoon onion powder
-1/4 teaspoon salt
+  *  1 tablespoon coconut oil (or butter)
+  *  ¼ cup boiling water (1 3/4 stock/water)
+  *  pinch saffron threads (roughly ½ tsp)
+  *  ¼ teaspoon onion powder
+  *  ¼ teaspoon salt
 
 ## Mexican Rice
-1 tablespoon coconut oil (or butter)
-1 cup salsa
-1/2 teaspoon cumin
-1/4 teaspoon chipotle chili powder
-1/4 teaspoon salt
+  *  1 tablespoon coconut oil (or butter)
+  *  1 cup salsa
+  *  ½ teaspoon cumin
+  *  ¼ teaspoon chipotle chili powder
+  *  ¼ teaspoon salt
 
 ## Cilantro Lime Rice
-1/4  teaspoon salt
-zest of 1 lime
-1/2 cup cilantro leaves chopped
-juice of 1/2 a lime (after cooking)
+  *  ¼  teaspoon salt
+  *  zest of 1 lime
+  *  ½ cup cilantro leaves chopped
+  *  juice of ½ a lime (after cooking)
 
 ## Pesto Green Rice
-1/4 cup pesto
-fresh basil leaves (to serve)
-sliced almonds (to serve)
+  *  ¼ cup pesto
+  *  fresh basil leaves (to serve)
+  *  sliced almonds (to serve)
 
 ## Turmeric Yellow Rice
-1/2 teaspoon turmeric
-1/4 teaspoon ground ginger
-1/4 teaspoon salt
-1/2 teaspoon onion powder
-1/2 teaspoon garlic powder
+  *  ½ teaspoon turmeric
+  *  ¼ teaspoon ground ginger
+  *  ¼ teaspoon salt
+  *  ½ teaspoon onion powder
+  *  ½ teaspoon garlic powder
 
 ## Spinach Rice
-1/4 teaspoon cayenne pepper
-4 cups spinach rough chopped
-2 tablespoons soy sauce
+  *  ¼ teaspoon cayenne pepper
+  *  4 cups spinach rough chopped
+  *  2 tablespoons soy sauce
