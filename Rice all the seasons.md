@@ -3,15 +3,16 @@
 #  A Rice for every season
 
 ## Flavors
-[Tomato Scallion](#Tomato Scallion)
-[Herb Lemon Rice](#Herb Lemon Rice)
-[Coconut Rice](#Coconut Rice)
-[Saffron Rice](#Saffron Rice)
-[Mexican Rice](#Mexican Rice)
-[Cilantro Lime Rice](#Cilantro Lime Rice)
-[Pesto Green Rice](#Pesto Green Rice)
-[Turmeric Yellow Rice](#Turmeric Yellow Rice)
-[Spinach Rice](#Spinach Rice)
+[## Beefy Onion](#beefy-onion-rice)  
+[Tomato Scallion](#tomato-scallion-rice)  
+[Herb Lemon](#herb-remon-rice)  
+[Coconut](#coconut-rice)  
+[Saffron](#saffron-rice)  
+[Mexican](#mexican-rice)  
+[Cilantro Lime](#cilantro-lime-rice)  
+[Pesto Green](#pesto-green-rice)  
+[Turmeric Yellow](#turmeric-yellow-rice)  
+[Spinach](#spinach-rRice)  
 
 ### Rice Hints
   *   Pick your rice and follow the directions.
@@ -25,8 +26,13 @@
   *   Add butter and fluff.
 
 
+## Beefy Onion Rice
+1 tablespoon oil
+1 chopped fine onion
+1/2 teaspoon McCormick® Perfect Pinch® Italian Seasoning
+1 can (14 ounces) beef broth
+
 ## Tomato Scallion Rice
-###  Ingredients
   *   **½** cup chopped onion
   *   **1** teaspoon minced garlic
   *   **4** cups chopped seeded tomatoes
