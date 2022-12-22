@@ -3,7 +3,7 @@
 #  A Rice for every season
 
 ## Flavors
-[## Beefy Onion](#beefy-onion-rice)  
+[Beefy Onion](#beefy-onion-rice)  
 [Tomato Scallion](#tomato-scallion-rice)  
 [Herb Lemon](#herb-remon-rice)  
 [Coconut](#coconut-rice)  
