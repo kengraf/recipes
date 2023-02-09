@@ -16,8 +16,8 @@
   *   **1** pound boneless, skinless chicken thighs, cut into 1-inch pieces
   *   **1** tablespoon coconut or canola oil
   *   **12** ounces asparagus, trimmed and thinly sliced on an angle
-  *   **1** teaspoon unseasoned rice vinegar or soy sauce
-  *   **1** lime, cut into wedges (optional)
+  *   **1** teaspoon unseasoned rice vinegar
+  *   **1** lime, cut into wedges (yes, not optional)
 
 ###  Directions
 
