@@ -1,4 +1,4 @@
-[![](./images/00c20805-d03f-4ee3-bea2-46732ed228b8.jpg)](https://usercontent1.hubstatic.com/229262_f520.jpg)
+[![](/images/00c20805-d03f-4ee3-bea2-46732ed228b8.jpg)](https://usercontent1.hubstatic.com/229262_f520.jpg)
 
 #  Vegetarian Okra Gumbo Recipe with Kidney Beans
 
