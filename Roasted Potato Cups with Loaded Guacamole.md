@@ -1,6 +1,6 @@
-[![](./images/1097499b-cccf-4a66-b6ea-0160622003b3.jpg)](http://www.shelikesfood.com/wp-content/uploads/2014/04/Roasted-Potatoes-filled-with-Loaded-Guacamole-7523.jpg)
+[![](/images/1097499b-cccf-4a66-b6ea-0160622003b3.jpg)](http://www.shelikesfood.com/wp-content/uploads/2014/04/Roasted-Potatoes-filled-with-Loaded-Guacamole-7523.jpg)
 
-#  Roasted Potato Cups with Loaded Guacamole {Gf+V}
+#  Roasted Potato Cups with Loaded Guacamole
 
 
 **Prep** 15 mins  
