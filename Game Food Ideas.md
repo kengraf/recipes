@@ -1,1 +1,1 @@
-<img src="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches" data-canonical-src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300" height="300" />
+<img data-canonical-src="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches" src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300" height="300" />
