@@ -1,3 +1,3 @@
-<a href="link address"><img src="image destination">text</a>
+Sample<a href="link"><img src="image"></a>
+### lobster-roll-style-salmon-sandwiches
 <a href="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches"><img src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300" height="300"></a>
-<img data-canonical-src="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches" src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300" height="300" />
