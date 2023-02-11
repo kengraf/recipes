@@ -13,11 +13,12 @@
 - 1 cup Cheddar cheese
 - 1 cup mayo
 - 6oz chopped artichoke
+- ½ cup frozen chopped spinach, thawed and drained
 - ¼ cup shredded mozzarella cheese
 - parsley  
 - 
 ### Directions
--  Preheat the oven to 350 degrees F (175 degrees C). Lightly grease a small baking dish.
+- Preheat the oven to 350 degrees F (175 degrees C). Lightly grease a small baking dish.
 - Mix together all ingradients
 - Transfer the mixture to the prepared baking dish; top with mozzarella cheese. Bake in the preheated oven until bubbly and lightly browned, about 25 minutes.
 
