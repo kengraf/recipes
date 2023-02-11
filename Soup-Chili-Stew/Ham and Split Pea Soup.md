@@ -1,4 +1,4 @@
-[![](./images/8c8e4174-e891-400d-ba13-7cb4190a4789.jpg)](http://images.media-allrecipes.com/userphotos/250x250/1508123.jpg)
+[![](/images/8c8e4174-e891-400d-ba13-7cb4190a4789.jpg)](http://images.media-allrecipes.com/userphotos/250x250/1508123.jpg)
 
 #  Ham and Split Pea Soup
 
