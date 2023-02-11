@@ -3,13 +3,13 @@
 ### garlic-butter-steak-bites
 <a href="https://www.foodandwine.com/recipes/garlic-butter-steak-bites"><img src="images/garlic-butter-steak-bites-FT-RECIPE0221-8dbce15a089d4fbeac3c6935507d2d4f.jpg" width="300" height="300"></a>
 ### pico-de-gallo-salsa
-<a href="https://www.foodandwine.com/recipes/aspen-2004-pico-de-gallo-salsa"><img src="images/Pico-De-Gallo-Salsa-FT-RECIPE0123-24f792d3c48440fc9bfc82cead2f7725.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/aspen-2004-pico-de-gallo-salsa"><img src="images/Pico-De-Gallo-Salsa-FT-RECIPE0123-24f792d3c48440fc9bfc82cead2f7725.webp" width="300"></a>
 ### spicy-shrimp-and-chorizo-kebabs
-<a href="https://www.foodandwine.com/recipes/spicy-shrimp-and-chorizo-kebabs"><img src="images/fw200506_xl_shrimpchorizo-2000-0b86428bc3f140b69b8cf2de04dffd67.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/spicy-shrimp-and-chorizo-kebabs"><img src="images/fw200506_xl_shrimpchorizo-2000-0b86428bc3f140b69b8cf2de04dffd67.webp" width="300"></a>
 ### roasted-hot-honey-sweet-potato-salad
-<a href="https://www.foodandwine.com/recipes/roasted-hot-honey-sweet-potato-salad"><img src="images/roasted-hot-honey-sweet-potato-salad.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/roasted-hot-honey-sweet-potato-salad"><img src="images/Roasted-Hot-Honey-Pecan-Sweet-Potato-Salad-FT-RECIPE0522-9f3e59fe10554563bc092e5c48a35296.webp" width="300"></a>
 ### classic-swiss-cheese-fondue
-<a href="https://www.foodandwine.com/recipes/classic-swiss-cheese-fondue"><img src="images/classic-swiss-cheese-fondue-FT-RECIPE0422-35e22a24bcb24899840568271197377b.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/classic-swiss-cheese-fondue"><img src="images/classic-swiss-cheese-fondue-FT-RECIPE0422-35e22a24bcb24899840568271197377b.webp" width="300"></a>
 ### thai-cucumber-salad
 <a href="https://www.foodandwine.com/recipes/thai-cucumber-salad"><img src="images/Thai-Cucumber-Salad-FT-RECIPE1222-429cdf6816f44893b4ecf95fbe764601.webp" width="300" height="300"></a>
 ### warm-spinach-artichoke-dip
