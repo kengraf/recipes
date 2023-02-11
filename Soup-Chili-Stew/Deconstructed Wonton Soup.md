@@ -1,4 +1,4 @@
-[![](./images/8f94792b-68ff-4db1-8efa-44c51c4900ac.jpg)](https://laptop2tabletop.files.wordpress.com/2015/01/deconstructed-wonton-soup.jpg?w=300&h=239)
+[![](/images/8f94792b-68ff-4db1-8efa-44c51c4900ac.jpg)](https://laptop2tabletop.files.wordpress.com/2015/01/deconstructed-wonton-soup.jpg?w=300&h=239)
 
 #  Deconstructed Wonton Soup
 
