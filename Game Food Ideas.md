@@ -11,8 +11,8 @@
 ### classic-swiss-cheese-fondue
 <a href="https://www.foodandwine.com/recipes/classic-swiss-cheese-fondue"><img src="images/classic-swiss-cheese-fondue-FT-RECIPE0422-35e22a24bcb24899840568271197377b.webp" width="300"></a>
 ### thai-cucumber-salad
-<a href="https://www.foodandwine.com/recipes/thai-cucumber-salad"><img src="images/Thai-Cucumber-Salad-FT-RECIPE1222-429cdf6816f44893b4ecf95fbe764601.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/thai-cucumber-salad"><img src="images/Thai-Cucumber-Salad-FT-RECIPE1222-429cdf6816f44893b4ecf95fbe764601.webp" width="300"></a>
 ### warm-spinach-artichoke-dip
-<a href="https://www.foodandwine.com/recipes/warm-spinach-artichoke-dip"><img src="images/warm-spinach-artichoke-dip-FT-RECIPE1219-1386f6ea2bbe4a508413371c55ba7f93.webp" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/warm-spinach-artichoke-dip"><img src="images/warm-spinach-artichoke-dip-FT-RECIPE1219-1386f6ea2bbe4a508413371c55ba7f93.webp" width="300"></a>
 ### lobster-roll-style-salmon-sandwiches
-<a href="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches"><img src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300" height="300"></a>
+<a href="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches"><img src="images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300"></a>
