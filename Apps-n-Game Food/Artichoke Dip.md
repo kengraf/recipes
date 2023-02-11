@@ -9,15 +9,17 @@
 **Source:** Cheryl Murphy
 
 ### Ingredients
-- 1/2 cup Parmisain cheese
-- 1 cup cheddar cheese
+- 1/2 cup Parmesan cheese
+- 1 cup Cheddar cheese
 - 1 cup mayo
 - 6oz chopped artichoke
+- ¼ cup shredded mozzarella cheese
 - parsley  
 - 
 ### Directions
+-  Preheat the oven to 350 degrees F (175 degrees C). Lightly grease a small baking dish.
 - Mix together all ingradients
-- Base 350 or unitl bubbely, 15-20 minutes
+- Transfer the mixture to the prepared baking dish; top with mozzarella cheese. Bake in the preheated oven until bubbly and lightly browned, about 25 minutes.
 
 ### Optional adds
  - roasted red peppers
