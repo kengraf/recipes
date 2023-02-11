@@ -1,4 +1,4 @@
-[![](./images/8e65f09c-cbc0-40ef-8fba-74d36bf3374d.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2018/4/2/2/LS-Library_Italian-Chicken-and-Bean-Stew_s4x3.jpg.rend.hgtvcom.826.620.suffix/1522721384513.jpeg)
+[![](/images/8e65f09c-cbc0-40ef-8fba-74d36bf3374d.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2018/4/2/2/LS-Library_Italian-Chicken-and-Bean-Stew_s4x3.jpg.rend.hgtvcom.826.620.suffix/1522721384513.jpeg)
 
 #  Italian Chicken and Bean Stew
 
