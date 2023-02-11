@@ -1,4 +1,4 @@
-[![](./images/7-easy-rice-recipes-HERO.jpg)](https://sweetpeasandsaffron.com/rice-recipes/)
+[![](/images/7-easy-rice-recipes-HERO.jpg)](https://sweetpeasandsaffron.com/rice-recipes/)
 
 #  A Rice for every season
 
