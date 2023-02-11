@@ -1,4 +1,4 @@
-[![](./images/7d01fc68-4676-454b-8313-0bbac8578867.jpg)](http://images.media-allrecipes.com/userphotos/720x405/883052.jpg)
+[![](/images/7d01fc68-4676-454b-8313-0bbac8578867.jpg)](http://images.media-allrecipes.com/userphotos/720x405/883052.jpg)
 
 #  Spinach, Red Lentil, and Bean Curry
 
