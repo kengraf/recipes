@@ -1,4 +1,4 @@
-[![](./images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
+[![](/images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
 
 #  Beef and Irish Stout Stew
 
