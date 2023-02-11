@@ -1,4 +1,4 @@
-![](./images/AR_GC_SpinachArtichokeDip_stills_DSC04278-2000-42fe14a618914c8e89b7dd38f7e7aa8b.jpg)
+![](/images/AR_GC_SpinachArtichokeDip_stills_DSC04278-2000-42fe14a618914c8e89b7dd38f7e7aa8b.jpg)
 
 # Artichoke Dip
 
