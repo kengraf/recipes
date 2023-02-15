@@ -1,4 +1,4 @@
-[![](./images/b89eb375-a869-4cfa-8ed3-ea7bad598cc9.jpg)](https://cafedelites.com/wp-content/uploads/2018/02/Beef-Bourguignon-IMAGE-36-500x500.jpg)
+[![](/images/b89eb375-a869-4cfa-8ed3-ea7bad598cc9.jpg)](https://cafedelites.com/wp-content/uploads/2018/02/Beef-Bourguignon-IMAGE-36-500x500.jpg)
 
 #  Beef Bourguignon
 
