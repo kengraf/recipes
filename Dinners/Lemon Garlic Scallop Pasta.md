@@ -1,4 +1,4 @@
-[![](./images/4e8ece6b-3a09-4f95-aabe-328dbcf6386d.jpg)](https://cdn.whatsgabycooking.com/wp-content/uploads/2019/02/WGC-Lemon-Scallop-Pasta-copy-2-199x199.jpg)
+[![](/images/4e8ece6b-3a09-4f95-aabe-328dbcf6386d.jpg)](https://cdn.whatsgabycooking.com/wp-content/uploads/2019/02/WGC-Lemon-Scallop-Pasta-copy-2-199x199.jpg)
 
 #  Lemon Garlic Scallop Pasta
 
