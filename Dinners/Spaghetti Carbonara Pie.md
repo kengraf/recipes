@@ -1,4 +1,4 @@
-[![](./images/b291191d-4a64-4769-8657-87e30473cf48.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2016/12/14/0/FN_Smitten-Kitchen-Spaghetti-Carbonara-Pie_s4x3.jpg.rend.hgtvcom.826.620.suffix/1484341244522.jpeg)
+[![](/images/b291191d-4a64-4769-8657-87e30473cf48.jpg)](https://food.fnr.sndimg.com/content/dam/images/food/fullset/2016/12/14/0/FN_Smitten-Kitchen-Spaghetti-Carbonara-Pie_s4x3.jpg.rend.hgtvcom.826.620.suffix/1484341244522.jpeg)
 
 #  Spaghetti Carbonara Pie
 
