@@ -1,4 +1,4 @@
-[![](./images/cecb5281-b744-4e08-893e-4de29d3f9b8f.jpg)](https://fitfoodiefinds.com/wp-content/uploads/2019/09/pork-shoulder-roast-7-683x1024.jpg)
+[![](/images/cecb5281-b744-4e08-893e-4de29d3f9b8f.jpg)](https://fitfoodiefinds.com/wp-content/uploads/2019/09/pork-shoulder-roast-7-683x1024.jpg)
 
 #  Pork Roast - slow cooker
 
