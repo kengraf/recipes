@@ -1,4 +1,4 @@
-[![](./images/57ed5028-ca59-4773-a55d-7f2bc374fab6.jpg)](https://static01.nyt.com/images/2020/09/16/dining/11Apperex/merlin_176534631_992abc2b-e91b-410a-b350-3de82a73627e-articleLarge.jpg)
+[![](/images/57ed5028-ca59-4773-a55d-7f2bc374fab6.jpg)](https://static01.nyt.com/images/2020/09/16/dining/11Apperex/merlin_176534631_992abc2b-e91b-410a-b350-3de82a73627e-articleLarge.jpg)
 
 #  Spiced Ginger Shrimp with Burst Tomatoes
 
