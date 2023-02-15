@@ -1,4 +1,4 @@
-[![](./images/ca10a8a9-7f6d-4df8-bac4-6388076d96be.jpg)](http://rk.wsimgs.com/wsimgs/rk/images/dp/recipe/201536/0002/img2l.jpg)
+[![](/images/ca10a8a9-7f6d-4df8-bac4-6388076d96be.jpg)](http://rk.wsimgs.com/wsimgs/rk/images/dp/recipe/201536/0002/img2l.jpg)
 
 #  Braised Lamb Shanks with Rosemary
 
