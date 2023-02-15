@@ -1,4 +1,4 @@
-[![](./images/eaaf442c-0db1-40b5-b737-b8f5ddae253e.jpg)](https://prods3.imgix.net/images/articles/2018_01/non-feature-osso-buco-veal-recipe-simone-falco.jpg?auto=format%2Ccompress&ixjsv=2.2.3&w=600)
+[![](/images/eaaf442c-0db1-40b5-b737-b8f5ddae253e.jpg)](https://prods3.imgix.net/images/articles/2018_01/non-feature-osso-buco-veal-recipe-simone-falco.jpg?auto=format%2Ccompress&ixjsv=2.2.3&w=600)
 
 #  Classic Italian Veal Osso Buco
 
