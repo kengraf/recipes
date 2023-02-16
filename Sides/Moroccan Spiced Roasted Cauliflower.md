@@ -1,4 +1,4 @@
-[![](./images/14719dbb-7804-4216-8b09-32d6db7d120a.jpg)](https://lh3.googleusercontent.com/u3nLPzQhHXmx8HtKb1wxxAVKQ5TYa19H3h2_v2y3MzMMx0JZx5tCs_-sPs3tpNWHY2wyotq8gohRgCwiCIaxz1R9ZpSnw2oooyULw00=w600-rw-l68-e365)
+[![](/images/14719dbb-7804-4216-8b09-32d6db7d120a.jpg)](https://lh3.googleusercontent.com/u3nLPzQhHXmx8HtKb1wxxAVKQ5TYa19H3h2_v2y3MzMMx0JZx5tCs_-sPs3tpNWHY2wyotq8gohRgCwiCIaxz1R9ZpSnw2oooyULw00=w600-rw-l68-e365)
 
 #  Moroccan Spiced Roasted Cauliflower
 
