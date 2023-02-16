@@ -1,4 +1,4 @@
-[![](./images/3594e97f-8562-4e50-b9de-0474be18aa3b.jpg)](https://assets.epicurious.com/photos/5761c748ff66dde1456dfec0/2:1/w_1260%2Ch_630/crispy-baked-chicken-wings.jpg)
+[![](/images/3594e97f-8562-4e50-b9de-0474be18aa3b.jpg)](https://assets.epicurious.com/photos/5761c748ff66dde1456dfec0/2:1/w_1260%2Ch_630/crispy-baked-chicken-wings.jpg)
 
 #  Buffalo Chicken Wings
 
