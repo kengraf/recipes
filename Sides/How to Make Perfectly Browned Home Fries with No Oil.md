@@ -1,4 +1,4 @@
-[![](./images/640ce718-98e3-4fde-bdb6-5325d8b2ad87.jpg)](http://3.bp.blogspot.com/-L8hx1r6JApY/T-qhqo0iJGI/AAAAAAAABA4/8R_gfRbsi7w/s400/pot%2B3.jpg)
+[![](/images/640ce718-98e3-4fde-bdb6-5325d8b2ad87.jpg)](http://3.bp.blogspot.com/-L8hx1r6JApY/T-qhqo0iJGI/AAAAAAAABA4/8R_gfRbsi7w/s400/pot%2B3.jpg)
 
 #  How to Make Perfectly Browned Home Fries with No Oil
 
