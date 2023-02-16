@@ -1,4 +1,4 @@
-[![](./images/Elote-Salad-010.webp)](https://www.acouplecooks.com/wp-content/uploads/2021/06/Elote-Salad-010.jpg)
+[![](/images/Elote-Salad-010.webp)](https://www.acouplecooks.com/wp-content/uploads/2021/06/Elote-Salad-010.jpg)
 
 #  Broccoli with Toasted Garlic and Hazelnuts
 
