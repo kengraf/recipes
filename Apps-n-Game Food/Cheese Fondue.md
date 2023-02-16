@@ -1,4 +1,4 @@
-[![](./images/f02dce6f-d652-4f16-9103-822143358af4.jpg)](http://assets.epicurious.com/photos/560de51ef9a84192308a7a9d/1:1/w_600%2Ch_600/231492.jpg)
+[![](/images/f02dce6f-d652-4f16-9103-822143358af4.jpg)](http://assets.epicurious.com/photos/560de51ef9a84192308a7a9d/1:1/w_600%2Ch_600/231492.jpg)
 
 #  Cheese Fondue
 
