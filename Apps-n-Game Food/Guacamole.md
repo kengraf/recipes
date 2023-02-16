@@ -1,4 +1,4 @@
-![](./images/guacamole.jpg)
+![](/images/guacamole.jpg)
 
 Prep: 10 mins  
 Total: 10 mins  
