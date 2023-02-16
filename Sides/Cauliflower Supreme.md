@@ -1,4 +1,4 @@
-[![](./images/c384f9d8-4de5-4ed1-bb0e-8311e5cbef2e.jpg)](http://images.media-allrecipes.com/userphotos/720x405/3400730.jpg)
+[![](/images/c384f9d8-4de5-4ed1-bb0e-8311e5cbef2e.jpg)](http://images.media-allrecipes.com/userphotos/720x405/3400730.jpg)
 
 #  Cauliflower Supreme
 
