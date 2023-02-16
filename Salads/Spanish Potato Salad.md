@@ -1,4 +1,4 @@
-[![](./images/e8cb603d-27c5-4551-ba6f-3beeadaf4540.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/0/FNM_050113-Spanish-Potato-Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
+[![](/images/e8cb603d-27c5-4551-ba6f-3beeadaf4540.jpg)](http://food.fnr.sndimg.com/content/dam/images/food/fullset/2013/4/5/0/FNM_050113-Spanish-Potato-Salad-Recipe_s4x3.jpg.rend.hgtvcom.616.462.jpeg)
 
 #  Spanish Potato Salad
 
