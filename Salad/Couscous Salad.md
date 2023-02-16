@@ -1,4 +1,4 @@
-[![](./images/CouscousSalad.png)](https://www.acouplecooks.com/wp-content/uploads/2022/03/Couscous-Salad-009.jpg)
+[![](/images/CouscousSalad.png)](https://www.acouplecooks.com/wp-content/uploads/2022/03/Couscous-Salad-009.jpg)
 
 # Couscous Salad
 
