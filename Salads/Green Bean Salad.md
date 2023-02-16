@@ -1,4 +1,4 @@
-[![](./images/8a9d4fed-b345-4663-9826-3157d5b278ef.jpg)](http://wdy.h-cdn.co/assets/15/25/768x384/landscape-1434751393-green-bean-salad.jpg)
+[![](/images/8a9d4fed-b345-4663-9826-3157d5b278ef.jpg)](http://wdy.h-cdn.co/assets/15/25/768x384/landscape-1434751393-green-bean-salad.jpg)
 
 #  Green Bean Salad
 
