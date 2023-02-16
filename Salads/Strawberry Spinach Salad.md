@@ -1,4 +1,4 @@
-[![](./images/Strawberry-Summer-Salad-002.webp)](https://www.acouplecooks.com/wp-content/uploads/2019/04/Strawberry-Summer-Salad-002.jpg)
+[![](/images/Strawberry-Summer-Salad-002.webp)](https://www.acouplecooks.com/wp-content/uploads/2019/04/Strawberry-Summer-Salad-002.jpg)
 
 #  Strawberry Spinach Salad
 
