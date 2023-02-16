@@ -1,4 +1,4 @@
-[![](./images/b4b216a4-14cb-4c48-bb7f-89610288766f.jpg)](http://del.h-cdn.co/assets/17/07/640x960/gallery-1487091054-delish-guacamolesalad-pin-1.jpg)
+[![](/images/b4b216a4-14cb-4c48-bb7f-89610288766f.jpg)](http://del.h-cdn.co/assets/17/07/640x960/gallery-1487091054-delish-guacamolesalad-pin-1.jpg)
 
 #  Guacamole Salad
 
