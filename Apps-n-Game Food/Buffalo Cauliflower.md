@@ -1,4 +1,4 @@
-[![](./images/buffalo-cauliflower-1bsm-4-200x200.jpg)]
+[![](/images/buffalo-cauliflower-1bsm-4-200x200.jpg)]
 
 #  Buffalo Cauliflower
 
