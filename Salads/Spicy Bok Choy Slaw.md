@@ -1,4 +1,4 @@
-[![](./images/d9be30f1-b2c4-42d1-8560-268ed1112220.jpg)](http://images.media-allrecipes.com/userphotos/720x405/630995.jpg)
+[![](/images/d9be30f1-b2c4-42d1-8560-268ed1112220.jpg)](http://images.media-allrecipes.com/userphotos/720x405/630995.jpg)
 
 #  Spicy Bok Choy Slaw
 
