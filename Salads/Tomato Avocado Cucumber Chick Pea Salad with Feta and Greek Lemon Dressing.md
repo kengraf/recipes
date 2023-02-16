@@ -1,4 +1,4 @@
-[![](./images/5317b996-efca-4eee-83d9-943b3d0f759e.jpg)](http://www.cookingclassy.com/wp-content/uploads/2015/03/tomato-avocado-cucumber-chick-pea-salad5-srgb.-426x640.jpg)
+[![](/images/5317b996-efca-4eee-83d9-943b3d0f759e.jpg)](http://www.cookingclassy.com/wp-content/uploads/2015/03/tomato-avocado-cucumber-chick-pea-salad5-srgb.-426x640.jpg)
 
 #  Tomato Avocado Cucumber Chick Pea Salad with Feta and Greek Lemon Dressing
 
