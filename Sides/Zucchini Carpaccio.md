@@ -1,4 +1,4 @@
-[![](./images/91df1696-c80a-4907-ab2e-3fc699f41283.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8c9ab63232_-_zucchini-carpaccio-0610-recipe-lgn.jpg)
+[![](/images/91df1696-c80a-4907-ab2e-3fc699f41283.jpg)](http://del.h-cdn.co/assets/cm/15/10/54f8c9ab63232_-_zucchini-carpaccio-0610-recipe-lgn.jpg)
 
 #  Zucchini Carpaccio
 
