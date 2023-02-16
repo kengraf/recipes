@@ -1,4 +1,4 @@
-[![](./images/fruit-salad-horizontal-jpg-1522181219.jpg)](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/fruit-salad-horizontal-jpg-1522181219.jpg?crop=1xw:1xh;center,top&resize=768:*)
+[![](/images/fruit-salad-horizontal-jpg-1522181219.jpg)](https://hips.hearstapps.com/hmg-prod.s3.amazonaws.com/images/fruit-salad-horizontal-jpg-1522181219.jpg?crop=1xw:1xh;center,top&resize=768:*)
 
 #  Fruit Salad
 
