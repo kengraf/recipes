@@ -2,8 +2,10 @@
 
 #  Gumbo Style Chicken Creole
 
-## Alternative
+## Big crowd Alternative
 [Try this alternative next time](https://www.southernliving.com/recipes/chicken-andouille-gumbo)
+
+## Drier [alternative](https://www.southernliving.com/recipes/shrimp-creole)
 
 **Prep** 15 m  
 **Cook** 45 m  
