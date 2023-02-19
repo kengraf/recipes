@@ -1,9 +1,7 @@
-[![](/images/bananas-foster.jpg)](https://www.southernliving.com/recipes/brennans-bananas-foster-0)
-
 #  Brennan's Bananas Foster
 
 **Makes** 4 to 6 servings  
-**Source:** [https://www.southernliving.com/](https://www.southernliving.com/recipes/brennans-bananas-foster-0)
+**Source includes video:** [https://www.southernliving.com/](https://www.southernliving.com/recipes/brennans-bananas-foster-0)
 
 ###  Ingredients
 
