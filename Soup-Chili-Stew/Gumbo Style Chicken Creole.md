@@ -2,6 +2,9 @@
 
 #  Gumbo Style Chicken Creole
 
+## Alternative
+[Try this alternative next time](https://www.southernliving.com/recipes/chicken-andouille-gumbo)
+
 **Prep** 15 m  
 **Cook** 45 m  
 **Makes** 5  
