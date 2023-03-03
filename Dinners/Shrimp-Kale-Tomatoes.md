@@ -1,4 +1,4 @@
-![](/images/kali-shrimp.jpg)
+![](/images/kale-shrimp.jpg)
 
 ## INGREDIENTS
 - 1 lb peeled shrimp 30-40 count
