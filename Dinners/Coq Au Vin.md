@@ -1,6 +1,8 @@
 ![](/images/Coq-au-Vin.jpg)
 
-Hard to improve on Julia Child
+4 SERVINGS 
+Prep time: 45 MINS
+Cook time: 30 MINS
 
 ## INGREDIENTS
 - 4 chicken thighs
@@ -16,7 +18,8 @@ Hard to improve on Julia Child
 - 2 teaspoons fresh thyme leaves
 - 8 ounces mushrooms, thickly sliced
 - 8 ounces pearl onions, peeled
-- Beurre manie, see notes for the options
+- Traditional beurre manie: 2 tablespoons flour + 2 tablespoons softened butter
 
 ## DIRECTIONS
+Hard to improve on Julia Child
 (https://www.theendlessmeal.com/julia-childs-coq-au-vin/)
