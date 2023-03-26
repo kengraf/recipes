@@ -1,7 +1,7 @@
 ![](/images/shepards-pie.jpg)
 
 ### 8 SERVINGS   
-### Prep time: 45 MINS  
+### Prep time: 45 minutes for components
 ### Cook time: 45 MINS
 
 ## INGREDIENTS
