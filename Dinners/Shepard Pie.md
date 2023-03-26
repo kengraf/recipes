@@ -41,7 +41,7 @@
 
 ## DIRECTIONS FILLING:  30 mins to complete
 - Preheat the oven to 400 degrees F.
-- Saute onion and carrots pn medimum-high just until they begin to take on color, approximately 3 to 4 minutes.  
+- Saute onion and carrots on medimum-high just until they begin to take on color, approximately 3 to 4 minutes.  
 - Add the garlic and stir to combine. 
 - Add the lamb, salt and pepper and cook until browned and cooked through, approximately 3 minutes. 
 - Sprinkle the meat with the flour and toss to coat, continuing to cook for another minute. 
