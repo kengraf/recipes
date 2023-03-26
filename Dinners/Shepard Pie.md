@@ -1,8 +1,8 @@
 ![](/images/shepards-pie.jpg)
 
-8 SERVINGS 
-Prep time: 45 MINS
-Cook time: 45 MINS
+### 8 SERVINGS   
+### Prep time: 45 MINS  
+### Cook time: 45 MINS
 
 ## INGREDIENTS
 ### For the potatoes:
