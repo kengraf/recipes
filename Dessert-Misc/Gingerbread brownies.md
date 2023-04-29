@@ -1,6 +1,6 @@
 ![](gingerbread-brownies-14280-1.jpg)
 
-#  Derby Bourbon Shrimp
+# Gingerbread brownies
 
 **Makes** 9 servings  
 **Source:** [Delicious.com.au](https://www.delicious.com.au/recipes/gingerbread-brownies/736c53d3-b660-4241-9f9d-b4af6e42152a?current_section=recipes)
