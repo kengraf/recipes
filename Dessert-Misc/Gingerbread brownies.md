@@ -1,4 +1,4 @@
-![](gingerbread-brownies-14280-1.jpg)
+[![](gingerbread-brownies-14280-1.jpg)]
 
 # Gingerbread brownies
 
