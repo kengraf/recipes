@@ -28,14 +28,14 @@
 
 ###  Directions
 
-In a 5Qt dutch oven, saute chopped bacon over medium heat until browned and fat released. With a slotted spoon, transfer bacon to a large plate.
-While bacon cooks, season lamb pieces with 1/2 Tbsp salt and 1 tsp pepper. Sprinkle with 1/4 cup flour and toss to coat. 
-Cook lamb in 2 batches in hot bacon grease over medium heat until browned (3-4 min per side) then transfer to the plate with bacon.
-Add diced onion and sauté 2 min.  
-Add garlic and cook another minute, stirring constantly. 
-Add 1 1/2 cups wine, scraping the bottom to deglaze. 
-Add sliced mushrooms, bring to simmer then cook uncovered 10 min.
-Preheat Oven to 325˚F.
-Return bacon and lamb to pot and add 4 cups broth, 1 Tbsp tomato paste, 1 tsp salt, 1/2 tsp pepper, 1/2 tsp dried thyme and 2 bay leaves. 
-Stir in potatoes and carrots, making sure potatoes are mostly submerged in liquid. 
-Bring to a boil then COVER and carefully transfer to preheated oven at 325˚F for 1 hr and 45 min. When done, potatoes and lamb will be very tender.
+In a 5Qt dutch oven, saute chopped bacon over medium heat until browned and fat released. With a slotted spoon, transfer bacon to a large plate.  
+While bacon cooks, season lamb pieces with 1/2 Tbsp salt and 1 tsp pepper. Sprinkle with 1/4 cup flour and toss to coat.   
+Cook lamb in 2 batches in hot bacon grease over medium heat until browned (3-4 min per side) then transfer to the plate with bacon.  
+Add diced onion and sauté 2 min.    
+Add garlic and cook another minute, stirring constantly.   
+Add 1 1/2 cups wine, scraping the bottom to deglaze.   
+Add sliced mushrooms, bring to simmer then cook uncovered 10 min.  
+Preheat Oven to 325˚F.  
+Return bacon and lamb to pot and add 4 cups broth, 1 Tbsp tomato paste, 1 tsp salt, 1/2 tsp pepper, 1/2 tsp dried thyme and 2 bay leaves.   
+Stir in potatoes and carrots, making sure potatoes are mostly submerged in liquid.   
+Bring to a boil then COVER and carefully transfer to preheated oven at 325˚F for 1 hr and 45 min. When done, potatoes and lamb will be very tender.  
