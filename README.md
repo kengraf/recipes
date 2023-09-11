@@ -5,4 +5,7 @@ Personnally I use the search function if I need to match the food on hand.
 
 When the recipe was culled from the Internet the image is clickable, going to the original source.
 
+# Free source of ideas
+![Hannaford Fresh magazine](https://www.hannaford.com/recipes)
+
 Enjoy.  
