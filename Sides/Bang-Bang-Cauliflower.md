@@ -15,7 +15,7 @@
   *  2 tbsp, sweet chili sauce
   *  1 tbsp, sriracha
   *  Juice of 1 lime
-  *  3 clove garlice, minced
+  *  3 clove garlic, minced
   *  salt, pepper
   *  1 tsp chopped cilantro, for garish
 
