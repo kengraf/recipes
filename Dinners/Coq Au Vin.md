@@ -1,8 +1,8 @@
 ![](/images/Coq-au-Vin.jpg)
 
 4 SERVINGS 
-Prep time: 45 MINS
-Cook time: 30 MINS
+Prep time: 15 MINS
+Cook time: 60 MINS
 
 ## INGREDIENTS
 - 4 chicken thighs
@@ -21,5 +21,26 @@ Cook time: 30 MINS
 - Traditional beurre manie: 2 tablespoons flour + 2 tablespoons softened butter
 
 ## DIRECTIONS
-Hard to improve on Julia Child
-(https://www.theendlessmeal.com/julia-childs-coq-au-vin/)
+Hard to improve on Julia Child (https://www.theendlessmeal.com/julia-childs-coq-au-vin/) but here goes!
+
+T-90
+Marinade chicken in medium bowl with wine, chicken stock and brandy.
+Prep veggies: onion, carrot, garlic
+
+T-70
+Cook bacon, remove from pan
+
+T-60
+Fry chicken, skin down 5 minutes, flip 5 minutes, 3 batches
+
+T-40
+Add onion/carrot, 7 minutes, add garlic 1 minute
+Push veggie sto side add tomato paste, let darken. Add wine marinade and scrap
+
+T-30
+Add back chicken, cover, set on low.
+Saute muchrooms.
+
+T-20
+
+
