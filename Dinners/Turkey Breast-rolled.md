@@ -2,7 +2,7 @@
 ](/images/Stuffed-Turkey-Breast-Sausage-2.webp)
 
 # Rolled Turkey Breast with Sausage & Herb Stuffing
-![https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html]
+https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html
 
 Adapted from Food Network's Patrick and Gina Neely
 A delicious (and make-ahead!) alternative to traditional holiday turkey.
@@ -36,5 +36,6 @@ Cook Time: 1 Hour 15 Minutes
 - Place the butterflied turkey breast skin-side down on a countertop or work surface and cover with plastic wrap. Using a meat mallet or rolling pin, pound the turkey breast to an even ½-inch thickness — this takes some time and muscle so be patient. Rub the meat with 1 tablespoon of the oil, and sprinkle with 1 teaspoon kosher salt and ½ teaspoon pepper. Spoon about half of the stuffing in an even ½-inch layer over the breast, leaving a 1-inch border all around. (Place the extra stuffing in a buttered 8-inch baking dish, and bake during the last 40 minutes of the turkey's cooking time.)
 - Starting at the long end, roll the turkey into a long cylinder (start at the end with less skin; this way the skin will end up mostly on the outside of the roll). Don't worry if the stuffing peeks out in some spots. Tie the roll with kitchen string with about 2 inches between each knot, and then trim the strings.
 - Line a baking sheet with aluminum foil and place an oven-proof rack over top. Spray the rack with nonstick cooking spray. Place the turkey seam-side down on the rack. Drizzle with the remaining tablespoon oil and season with 1 teaspoon kosher salt and ½ teaspoon pepper. Roast for about 1 hour and 15 minutes, or until an instant-read thermometer inserted into the thickest part of the roll reads 155°F. Remove the turkey from the oven and let rest, loosely tented with foil for 15 minutes. The turkey will rise in temperature as it rests to 165°F. Snip and discard the kitchen twine. Transfer the roll to a cutting board and slice into ½-inch thick slices and arrange on a platter. Serve with gravy.  
+  
 Note: Ask your butcher to bone and butterfly the turkey breast for you (you can also ask if they will pound it to a ½-inch thickness to save you a step later). If you're buying a boneless turkey breast, look for one that is about 4 pounds.  
 Make Ahead: The recipe can be prepared and cooked 1 to 2 days ahead of time, covered, and stored in the refrigerator. Slice the turkey roll cold and reheat, covered, in a 300°F oven until warm, 40 to 45 minutes.
