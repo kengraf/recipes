@@ -1,5 +1,5 @@
 ![https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html
-](/images/Stuffed-Turkey-Breast-Sausage-2.webp)
+](/images/Stuffed-Turkey-Breast-Sausage-2.webp&w=600)
 
 # Rolled Turkey Breast with Sausage & Herb Stuffing
 https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html
