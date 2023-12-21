@@ -1,4 +1,4 @@
-[<img src="/images/Stuffed-Turkey-Breast-Sausage-2.webp">](https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html)
+[![ResultImage](/images/Stuffed-Turkey-Breast-Sausage-2.webp)]([https://www.flipkart.com/](https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html)){:target="_blank"}
 
 # Rolled Turkey Breast with Sausage & Herb Stuffing
 https://www.onceuponachef.com/recipes/turkey-breast-sausage-herb-stuffing.html
