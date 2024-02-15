@@ -1,5 +1,5 @@
 # Chicken Creole
-![](/images/chicken-creole.webp)
+![](/images/chicken-creole.webp)  
 Prep Time 10 minutes    Cook Time 25 minutes  
 Servings: 8 servings  
 Course: Main Course Cuisine: American, southern Keyword: chicken creole, chicken dinner 
