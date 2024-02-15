@@ -1,9 +1,11 @@
-Prep Time 10 minutes
-Cook Time 25 minutes
-Course: Main CourseCuisine: American, southernKeyword: chicken creole, chicken dinner Servings: 8 servings Author: The Southern Lady Cooks
+# Chicken Creole
+![](/images/chicken-creole.webp)
+Prep Time 10 minutes    Cook Time 25 minutes  
+Servings: 8 servings  
+Course: Main Course Cuisine: American, southern Keyword: chicken creole, chicken dinner 
 
 ### Ingredients
-- 4 to 6 chicken breasts I use the frozen boneless, skinless ones cut into inch size pieces
+- 4 to 6 chicken breasts, boneless, skinless, cut into inch size pieces
 - 1/4 cup oil
 - 1 medium onion chopped
 - 1 green pepper chopped
