@@ -1,4 +1,5 @@
-![](images/mushrooms-garlic.jpg)
+[![](images/mushrooms-garlic.jpg)]()
+
 ### INGREDIENTS
 - 4 tablespoons unsalted butter
 - 1 tablespoon olive oil
