@@ -1,4 +1,4 @@
-[![](/images/mushrooms-garlic.jpg)]()
+<img src="/images/mushrooms-garlic.jpg" width=300 />
 
 ### INGREDIENTS
 - 4 tablespoons unsalted butter
