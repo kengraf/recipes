@@ -1,5 +1,5 @@
 ### Ingredients
-1 (750 milliliter) bottle dry red wine (grenache: cheaper is fine)  
+1 (750 milliliter) bottle dry red wine (grenache or rioja: cheaper is fine)  
 1/2 cup brandy  
 1/2 cup triple sec  
 1/3 cup frozen lemonade concentrate  
