@@ -1,4 +1,4 @@
-![](/images/lobster-rolls.webp){: width="50%"}
+<a href="/images/lobster-rolls.webp"><img src="/images/lobster-rolls.webp" width="300"></a>
 
 #  Lobster Rolls
 
