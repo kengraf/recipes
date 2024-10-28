@@ -9,20 +9,17 @@
 
 ###  Ingredients
 
-* 1 tablespoon butter, softened
-* 4 hot dog buns or kaiser rolls, split
-* 4 lettuce leaves
-  
-* 2 tablespoons mayonnaise
-* 1 teaspoon fresh lime juice
-* 1 dash hot pepper sauce (e.g. Tabasco)
-* salt and pepper to taste
-  
-* 2 green onions, chopped
-* 1 stalk celery, finely chopped
-   
-* 1 ½ pounds cooked and cubed lobster meat
-* 1 pinch dried basil, parsley or tarragon
+* 1 tablespoon butter, softened  
+* 4 hot dog buns or kaiser rolls, split  
+* 4 lettuce leaves   
+* 2 tablespoons mayonnaise  
+* 1 teaspoon fresh lime juice  
+* 1 dash hot pepper sauce (e.g. Tabasco)  
+* salt and pepper to taste   
+* 2 green onions, chopped  
+* 1 stalk celery, finely chopped   
+* 1 ½ pounds cooked and cubed lobster meat  
+* 1 pinch dried basil, parsley or tarragon  
 
 ### Directions
 * Lightly butter the insides of buns and line with lettuce leaves. Set aside.  
