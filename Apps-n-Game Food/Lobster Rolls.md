@@ -1,4 +1,4 @@
-[![](/images/lobster-rolls.webp)](images/lobster-rolls.webpg){: width="50%"}
+![](/images/lobster-rolls.webp){: width="50%"}
 
 #  Lobster Rolls
 
