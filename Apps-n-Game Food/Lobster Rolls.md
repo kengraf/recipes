@@ -1,4 +1,4 @@
-[![](/images/lobster_rools.webp)](images/lobster_rools.webpg)
+[![](/images/lobster-rolls.webp)](images/lobster-rolls.webpg)
 
 #  Lobster Rolls
 
