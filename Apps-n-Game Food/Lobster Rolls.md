@@ -3,7 +3,7 @@
 #  Lobster Rolls
 
 **Prep** 10 m  
-**Cook** 0 m  (assuming leftovers)
+**Cook** 0 m  (assuming leftovers)  
 **Makes** 4  
 **Source:** [Allrecipes.com](https://www.allrecipes.com/recipe/98979/lobster-rolls/)
 
@@ -12,12 +12,15 @@
 * 1 tablespoon butter, softened
 * 4 hot dog buns or kaiser rolls, split
 * 4 lettuce leaves
+* 
 * 2 tablespoons mayonnaise
 * 1 teaspoon fresh lime juice
 * 1 dash hot pepper sauce (e.g. Tabasco)
 * salt and pepper to taste
+* 
 * 2 green onions, chopped
 * 1 stalk celery, finely chopped
+* 
 * 1 ½ pounds cooked and cubed lobster meat
 * 1 pinch dried basil, parsley or tarragon
 
