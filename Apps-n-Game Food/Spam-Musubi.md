@@ -1,3 +1,4 @@
+<a href="/images/spam-musubi.webp"><img src="/images/spam-musubi.webp" width="300"></a>
 # Spam Musubi
 Spam musubi is a popular snack in Hawaii. It is a type of sushi that features marinated cooked Spam and rice wrapped with nori. I got this recipe from a local Hawaiian friend when I was living there.
 
