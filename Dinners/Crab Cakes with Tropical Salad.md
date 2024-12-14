@@ -9,8 +9,6 @@
 **Difficulty** Easy  
 **Source:** [Delish.com](http://www.delish.com/cooking/recipe-ideas/recipes/a30912/crab-cakes-tropical-salad-recipe-rbk0610/)
 
-###  Ingredients
-
 **CRAB CAKES:**
   *  **½** c. light mayonnaise
   *  **1** large egg
@@ -21,7 +19,7 @@
   *  **1** tsp. Freshly ground black pepper
   *  **⅓** c. finely diced red bell pepper
   *  **¼** c. snipped fresh chives or chopped scallions
-  *  **1** lb. lump crabeat
+  *  **1** lb. lump crab meat
   *  **1¼** c. panko (Japanese breadcrumbs)
  
 **TROPICAL SALAD:**
