@@ -6,20 +6,21 @@
 
 ###  Ingredients
 
-  *  **1** lb shrimp
-  *  **7** cups water
-  *   **2** bay leaves
-  *   **1** tblsp course black pepper
-  *   **2** tblp butter
-  *   **1** onion chopper fine
-  *   **1** fennel bulb, cored and chopped fine
-  *   **1/8** tsp baking soda
-  *   **1** cup arborio rice
-  *   **3/4** cup dry white wine
-  *   **1/2** cup parmesan cheese
-  *   **1/4** cup fresh chives
-  *   **1/2** tsp lemon zest
-  *   **1** tblsp lemon juice
+Ingredients
+
+- 5 tablespoons extra-virgin olive oil
+- 2 teaspoons kosher salt
+- 1/2 teaspoon freshly ground black pepper
+- 1 pound extra-large shrimp, peeled and deveined
+- 1 small fennel bulb, chopped (about 1 cup)
+- 1 small onion, chopped (about 1 cup)
+- 1 large clove garlic, smashed, peeled, chopped
+- 1 cup Arborio rice (about 6 1/2 ounces)
+- 1/4 cup dry white wine
+- 3 cups low-sodium chicken broth, plus extra as needed
+- 1/4 cup fresh lemon juice (from 1 large lemon)
+- Zest of 1 large lemon
+- 3 cups arugula
 
 ###  Directions
 
