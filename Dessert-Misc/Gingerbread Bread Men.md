@@ -22,15 +22,15 @@
 ###  Directions
 
 Sift flour
-Mix: 2 cups flour, brown sugar, ginger, cinnamon, cloves, and salt
-Heat until warm: milk, water, molasses, and butter
-Add yeast (to dry if rapid rinse, to liquid if traditional)
-Add liquid to dry, beat 2 minutes on medium
-Add eggs, 3/4 cup flour or enough to thicken batter
-Beat 2 minutes on high
-Knead dough for 8-10 minutes until smooth and elastic
-Grease 2 large cookie pans
-Divide into 4 parts and shape into men
+Mix: 2 cups flour, brown sugar, ginger, cinnamon, cloves, and salt.  
+Heat until warm: milk, water, molasses, and butter.  
+Add yeast (to dry if rapid rinse, to liquid if traditional)  
+Add liquid to dry, beat 2 minutes on medium  
+Add eggs, 3/4 cup flour or enough to thicken batter  
+Beat 2 minutes on high  
+Knead dough for 8-10 minutes until smooth and elastic  
+Grease 2 large cookie pans  
+Divide into 4 parts and shape into men  
 
 Freeze option
 Wrap in plastic wrap
