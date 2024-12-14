@@ -6,8 +6,6 @@
 
 ###  Ingredients
 
-Ingredients
-
 - 5 tablespoons extra-virgin olive oil
 - 2 teaspoons kosher salt
 - 1/2 teaspoon freshly ground black pepper
@@ -24,27 +22,12 @@ Ingredients
 
 ###  Directions
 
-cut shrimp bite size
-
-sauté shrimp shells, until spotted brown 2-4 mins
-
-Add water, peppercorns, salt, bay leaves, bring to boil then simmer 5 mins,
-drain and discard solids
-
-Melt 1tblsp butter, add onion, fennel, salt over med heat, until soften 8-10
-mins
-
-Add garlic, 30 seconds
-
-Add rice, 3 mins, stirring
-
-Add wine, 3 mins, stirring
-
-Add 2 cups stock, med-low, cover until liquid is gone 16-18 mins, stir twice
-
-Add 3/4 cup stock, stir gently, 3 mins
-
-Stir in shrimp, parmesan, cover off heat. 5 mins
-
-Gently stir in chives, lemon zest, juice, butter,
-
+- Heat 2 tablespoons of the oil in a heavy large saucepan over medium heat. Add the shrimp and sprinkle with 1/2 teaspoon of the salt and 1/4 teaspoon of the pepper.
+- Cook until the shrimp are just opaque in the center, about 3 minutes. Remove the pan from the heat. Transfer the shrimp and juices to a bowl to cool. 
+- Add the remaining 3 tablespoons oil to the pan. Add the fennel and onions. Cook until tender, about 4 minutes.
+- Add the garlic and cook until aromatic, 30 seconds. Add the rice. Stir until well coated and translucent in spots, about 2 minutes. Add the wine. Cook until the wine is absorbed, stirring often, about 2 minutes.
+- Add the broth, lemon juice, zest, and the remaining 1 1/2 teaspoons salt and 1/4 teaspoon pepper. Increase the heat and bring to a boil, stirring often.
+- Reduce the heat to medium-low. Simmer until the rice is just tender but still has some bite and the risotto is creamy, stirring often, 13 to 14 minutes. 
+- Mix in the arugula. Stir until the arugula wilts, about 30 seconds.
+- Add the shrimp. Mix in additional broth if needed, 1/4 cup at a time, until the risotto is creamy.
+- Spoon the risotto into 4 shallow soup bowls. 
