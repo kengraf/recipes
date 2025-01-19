@@ -38,7 +38,7 @@
 * Reduce the heat to medium, cover, and cook for 5 minutes.
 * Add the lamb back in.
 * Simmer for 3 hours, stirring occasionally.
-> {!TIP}
+> [!TIP]
 > This is the most important step in the recipe ~ take the time to taste and adjust, it makes all the difference.
 * Add potatos with an hour left.
 * Add the cabbage to the stew and stir well. It will wilt in the heat of the stew.
