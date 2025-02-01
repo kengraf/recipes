@@ -10,7 +10,7 @@ Serves: 6-8
 - 1 can (4 oz) diced green chilies
 - 1 teaspoon ground cumin
 - 1 teaspoon dried oregano
-v1/2 teaspoon ground coriander
+- 1/2 teaspoon ground coriander
 - 1/4 teaspoon cayenne pepper (optional, for heat)
 - 1 cup sour cream
 - 1 cup heavy cream
