@@ -1,23 +1,23 @@
 # CHEF BILL’S WHITE CHICKEN CHILI WITH CHICKEN
 Serves: 6-8
 ## Ingredients:
-2 tablespoons olive oil
-1 pound chicken breast, cooked and shredded (rotisserie chicken works great!)
-1 large onion, chopped
-2 cloves garlic, minced
-2 cups chicken broth
-2 cans (15 oz each) white beans, drained and rinsed
-1 can (4 oz) diced green chilies
-1 teaspoon ground cumin
-1 teaspoon dried oregano
-1/2 teaspoon ground coriander
-1/4 teaspoon cayenne pepper (optional, for heat)
-1 cup sour cream
-1 cup heavy cream
-Salt and pepper to taste
-1 tablespoon fresh cilantro, chopped (for garnish)
-Shredded cheddar cheese (for garnish)
-Crumbled tortilla chips (optional)
+- 2 tablespoons olive oil
+- 1 pound chicken breast, cooked and shredded (rotisserie chicken works great!)
+- 1 large onion, chopped
+- 2 cloves garlic, minced
+- 2 cups chicken broth
+- 2 cans (15 oz each) white beans, drained and rinsed
+- 1 can (4 oz) diced green chilies
+- 1 teaspoon ground cumin
+- 1 teaspoon dried oregano
+v1/2 teaspoon ground coriander
+- 1/4 teaspoon cayenne pepper (optional, for heat)
+- 1 cup sour cream
+- 1 cup heavy cream
+- Salt and pepper to taste
+- 1 tablespoon fresh cilantro, chopped (for garnish)
+- Shredded cheddar cheese (for garnish)
+- Crumbled tortilla chips (optional)
 
 ## Instructions:
 1. Heat olive oil in a large pot over medium heat. Add chopped onion and garlic, and sauté until soft and fragrant, about 5
