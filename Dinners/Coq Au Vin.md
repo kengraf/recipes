@@ -31,16 +31,20 @@ T-70
 Cook bacon, remove from pan
 
 T-60
-Fry chicken, skin down 5 minutes, flip 5 minutes, 3 batches
+Pat dry the chicken and season with salt and pepper.
+Fry chicken, skin down 5 minutes, flip 5 minutes, 2 batches
 
 T-40
 Add onion/carrot, 7 minutes, add garlic 1 minute
 Push veggie sto side add tomato paste, let darken. Add wine marinade and scrap
 
 T-30
-Add back chicken, cover, set on low.
+Add back chicken, sprinkle thyme, cover, set on low.
 Saute muchrooms.
 
-T-20
+T-10 Add pearl onions  
+
+T-0 Remove chicken, and beurre manie, stir until thicken, add back chicken.  
+
 
 
