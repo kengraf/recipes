@@ -1,9 +1,10 @@
-![](/images/Coq-au-Vin.jpg) ![Original Recipe](/images/julia.jpg)
-
 ## Julia Child
 Americanizing for shopping not trying to improve!
 
-2 SERVINGS 
+![](/images/Coq-au-Vin.jpg) ![Original Recipe](/images/julia.jpg)
+
+
+2 SERVINGS (halved the original)
 Prep time: 30 MINS
 Cook time: 100 MINS
 
@@ -25,6 +26,7 @@ Cook time: 100 MINS
 - 8 ounces pearl onions, peeled
 - Traditional beurre manie: 2 tablespoons flour + 2 tablespoons softened butter
 
+![](https://www.onceuponachef.com/recipes/coq-au-vin.html)
 
 T -100
 Marinade chicken in medium bowl with wine, chicken stock and brandy.
@@ -44,19 +46,23 @@ Pour off all but about 2 tablespoons of the fat.
 T-40
 Return the pot to the stove and reduce the heat to medium-low. Add the onions to the pot and cook, stirring occasionally, until the onions are softened and just starting to brown, 3 to 5 minutes. Add the garlic and cook, stirring constantly, until fragrant, about 1 minute more. Add the Cognac and cook, stirring to scrape the brown bits from the bottom of the pan, until the Cognac has evaporated. Add the wine/broth marinade, tomato paste, balsamic vinegar, sugar, thyme, bay leaf, and ½ teaspoon salt. Bring to a boil, then reduce the heat to medium and gently boil, uncovered, for 15 minutes.
 
-T-30
+T-50
 Add the chicken and any accumulated juices from the plate back to the pot, along with the carrots. Bring to a simmer, then cover and cook over low heat for 30 minutes, or until the chicken and carrots are cooked through.  
 
+T-30
 While the chicken cooks, heat the remaining 2 tablespoons of oil in a large skillet over medium heat. Add the mushrooms and ¼ teaspoon salt and cook, stirring frequently, until the mushrooms are golden brown, about 5 minutes. Set aside.
 
 T-10 Add pearl onions  
 Also while the chicken cooks: In a small bowl, mash the softened butter and flour to make a smooth paste. Set aside.  
 
-T-0 
+T-20 
 Using a slotted spoon, transfer the cooked chicken to a plate.
 Increase the heat in the Dutch oven/pot to medium and stir in three-quarters of the flour and butter paste. Gently boil until the sauce is thickened, 5 to 7 minutes; add the remaining paste if you'd like the sauce a little thicker. Fish out and discard the bay leaf.
  
 Using a fork and knife, pull the skin off of the chicken and discard.
 
-Add the chicken and any accumulated juices back to the pot and simmer, uncovered, for about 10 minutes. Right before serving, stir in the browned mushrooms and pancetta. Taste and adjust seasoning, if necessary, then serve.
+T-10
+Add the chicken and any accumulated juices back to the pot and simmer, uncovered, for about 10 minutes.   
+T-10  
+Right before serving, stir in the browned mushrooms and pancetta. Taste and adjust seasoning, if necessary, then serve.
 
