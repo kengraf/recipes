@@ -1,4 +1,7 @@
-![](/images/Coq-au-Vin.jpg)
+![](/images/Coq-au-Vin.jpg) ![Original Recipe](/images/julia.jpg)
+
+## Julia Child
+Americanizing for shopping not trying to improve!
 
 2 SERVINGS 
 Prep time: 30 MINS
@@ -22,8 +25,6 @@ Cook time: 100 MINS
 - 8 ounces pearl onions, peeled
 - Traditional beurre manie: 2 tablespoons flour + 2 tablespoons softened butter
 
-## DIRECTIONS
-Hard to improve on Julia Child (https://www.theendlessmeal.com/julia-childs-coq-au-vin/) but here goes!
 
 T -100
 Marinade chicken in medium bowl with wine, chicken stock and brandy.
