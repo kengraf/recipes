@@ -50,6 +50,6 @@ Remove from oven and cool completely before frosting.
 - Beat the powdered sugar, milk, butter, lemon juice, and vanilla in a medium bowl until smooth. 
 The frosting should be pourable but thick.
 - Stick a plastic baby figurine into each cake, pushing it down in to hide it. 
-Drizzle the frosting over both king cakes, spreading it with a spatula if needed for good coverage. 
+Drizzle the frosting, spreading it with a spatula if needed for good coverage. 
 Sprinkle with the purple, green, and gold sugar while the frosting is still wet before it has a chance to set.
 - Slice and serve. Whoever gets the slice with the baby gets to be king or queen for the day!
