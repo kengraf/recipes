@@ -1,6 +1,6 @@
 # Fried Shrimp Po-Boy
 
-https://houseofnasheats.com/wp-content/uploads/2020/11/Shrimp-Po-Boy-11.jpg
+<img src="https://houseofnasheats.com/wp-content/uploads/2020/11/Shrimp-Po-Boy-11.jpg" width="270" height="400" />
 
 Servers: 4
 
