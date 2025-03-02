@@ -1,4 +1,4 @@
-![]([/images/gingerbread-brownies-14280-1.jpg](https://houseofnasheats.com/wp-content/uploads/2022/01/Mardi-Gras-King-Cake-Recipe-24-720x1079.jpg))
+![](https://houseofnasheats.com/wp-content/uploads/2022/01/Mardi-Gras-King-Cake-Recipe-24-720x1079.jpg)
 
 # King Cake
 
