@@ -1,6 +1,6 @@
-<img src="https://houseofnasheats.com/wp-content/uploads/2022/01/Mardi-Gras-King-Cake-Recipe-24-720x1079.jpg" width="270" height="400" />
-
 # King Cake
+
+<img src="https://houseofnasheats.com/wp-content/uploads/2022/01/Mardi-Gras-King-Cake-Recipe-24-720x1079.jpg" width="270" height="400" />
 
 **Makes** 6 servings  
 **Source:** [houseofnasheats.com](https://houseofnasheats.com/king-cake-recipe/)
