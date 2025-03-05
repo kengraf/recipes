@@ -3,7 +3,7 @@
 <img src="https://houseofnasheats.com/wp-content/uploads/2020/11/Shrimp-Po-Boy-11.jpg" width="270" height="400" />
 
 Servers: 4
-
+[Alt frying recipe](https://www.dinneratthezoo.com/fried-shrimp-recipe/)
 ## Ingredients
 #### Shrimp
 - 1 ½ to 2 pounds raw shrimp, peeled and deveined with tails off
