@@ -43,15 +43,23 @@ Variation #5: Caprese
 2 cups halved cherry tomatoes
 ¾ cup halved mini mozzarella balls
 ½ cup sliced fresh basil leaves
-Cook Mode
-Prevent your screen from going dark
-Instructions
-Preheat the oven to 400°F.
-Whisk the eggs, almond milk, garlic, and salt until well combined. Set aside. Choose a vegetable variation. Follow the corresponding instructions to make it.
-Broccoli Feta:
-Heat 1 tablespoon olive oil in a 10 or 12-inch cast-iron skillet over medium heat. Add the scallions, broccoli, and a pinch of salt and pepper and cook, stirring occasionally, until the broccoli is tender but still bright green, 5 to 8 minutes. Stir in the smoked paprika, then add the egg mixture and gently shake the pan to distribute. Sprinkle with the feta and bake 15 to 20 minutes or until the eggs are set. Season to taste and serve.
-Roasted Red Pepper & Spinach:
-Heat ½ tablespoon olive oil in a 10 or 12-inch cast-iron skillet over medium heat. Add the shallot, and a pinch of salt and pepper and cook until translucent, about 5 minutes. Add the roasted red peppers and spinach. Sauté until the spinach is wilted, then add the egg mixture and gently shake the pan to distribute. Sprinkle with the feta and bake 15 to 20 minutes or until the eggs are set. Season to taste and serve.
+
+### Instructions
+- Preheat the oven to 400°F.
+- Whisk the eggs, almond milk, garlic, and salt until well combined. Set aside. Choose a vegetable variation. Follow the corresponding instructions to make it.
+
+*Broccoli Feta:*  
+- Heat 1 tablespoon olive oil in a 10 or 12-inch cast-iron skillet over medium heat.
+- Add the scallions, broccoli, and a pinch of salt and pepper and cook, stirring occasionally, until the broccoli is tender but still bright green, 5 to 8 minutes.
+- Stir in the smoked paprika, then add the egg mixture and gently shake the pan to distribute.
+- Sprinkle with the feta and bake 15 to 20 minutes or until the eggs are set. Season to taste and serve.
+  
+*Roasted Red Pepper & Spinach:*  
+- Heat ½ tablespoon olive oil in a 10 or 12-inch cast-iron skillet over medium heat.
+- Add the shallot, and a pinch of salt and pepper and cook until translucent, about 5 minutes.
+- Add the roasted red peppers and spinach. Sauté until the spinach is wilted, then add the egg mixture and gently shake the pan to distribute.
+- Sprinkle with the feta and bake 15 to 20 minutes or until the eggs are set. Season to taste and serve.
+  
 Spring Veggie:
 Heat ½ tablespoon olive oil in a 10 or 12-inch cast-iron skillet over medium heat. Add the scallions, asparagus, and a pinch of salt and pepper and cook, stirring occasionally, until the asparagus is tender but still bright green, about 5 minutes. Add the peas, then add the egg mixture and gently shake the pan to distribute. Add the mozzarella and feta and bake 15 to 20 minutes or until the eggs are set. Season to taste and serve.
 Mixed Mushroom & Tarragon:
