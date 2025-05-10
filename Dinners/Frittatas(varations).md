@@ -20,19 +20,19 @@ Extra-virgin olive oil, for drizzling
 - 6 scallions, chopped
 - 2 cups chopped broccoli or broccolini
 - ⅛ teaspoon smoked paprika
-- ¼ cup crumbled feta cheese
+- ¼ cup crumbled feta cheese  
 *Variation #2: Roasted Red Pepper & Spinach*
-1 shallot, chopped
-2 roasted red bell peppers, chopped
-2 cups spinach
-⅓ cup crumbled feta cheese
-Variation #3: Spring Veggie
-4 spring onions or scallions, chopped
-½ cup chopped asparagus, tender parts
-½ cup frozen peas, thawed
-½ cup halved mini mozzarella balls
-¼ cup crumbled feta cheese
-¼ cup chopped tarragon or chives
+- 1 shallot, chopped
+- 2 roasted red bell peppers, chopped
+- 2 cups spinach
+- ⅓ cup crumbled feta cheese  
+*Variation #3: Spring Veggie*
+- 4 spring onions or scallions, chopped
+- ½ cup chopped asparagus, tender parts
+- ½ cup frozen peas, thawed
+- ½ cup halved mini mozzarella balls
+- ¼ cup crumbled feta cheese
+- ¼ cup chopped tarragon or chives
 Variation #4: Mixed Mushroom & Tarragon
 1 shallot, chopped
 12 ounces mixed mushrooms, chopped
