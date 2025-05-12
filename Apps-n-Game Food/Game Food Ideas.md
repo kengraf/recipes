@@ -16,3 +16,5 @@
 <a href="https://www.foodandwine.com/recipes/warm-spinach-artichoke-dip"><img src="/images/warm-spinach-artichoke-dip-FT-RECIPE1219-1386f6ea2bbe4a508413371c55ba7f93.webp" width="300"></a>
 ### lobster-roll-style-salmon-sandwiches
 <a href="https://www.foodandwine.com/recipes/lobster-roll-style-salmon-sandwiches"><img src="/images\201212-xl-lobster-roll-style-salmon-sandwiches-2000-78048e9c8a254d09b054f96f1c5bb787.jpg" width="300"></a>
+### Smoked Sausage Wreath
+<a href="https://www.foodandwine.com/recipes/smoked-sausage-wreath"><img src="/images/how-to-make-sausage-wreath-serve-whole-FT-BLOG1018-b985677407a74af4b9ba654a9bde6736.webp" width="300"></a>
