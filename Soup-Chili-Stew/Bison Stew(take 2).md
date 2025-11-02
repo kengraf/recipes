@@ -4,9 +4,9 @@
 
 #  Bison Chili
 
-**Prep** 15 mins  
-**Cook** 2 hrs 30 mins  
-**Source:** [Thewoksoflife.com](https://thewoksoflife.com/wprm_print/28053)
+**Prep** 5 mins  
+**Cook** 45 mins  
+**Source:** Game day lab
 
 ###  Ingredients
 
