@@ -3,25 +3,24 @@
 
 **Cook** 1 hour  
 **Makes** 6   
-**Source:** <https://cafedelites.com/jambalaya/>
 
 ###  Ingredients
 
-  *  **1** tablespoons cooking oil, divided
+  *  **1** tablespoons cooking oil
   *  **16** ounces (300 g) andouille sausage, sliced into rounds
   *  **1 1/2** pound (500 g) boneless skinless chicken breasts or thighs, cut into 1 inch pieces
-  *  **1** tablespoons butter
-  *  **1** tablespoons flour
+  *  **2** tablespoons butter
+  *  **2** tablespoons flour
   *  **1** onion diced
-  *  **4** green onions diced
+  *  **4** green onions chopped
   *  **4** cloves garlic, minced
   *  **1** small green bell pepper (capsicum), seeded and diced
   *  **3** stalks/ribs celery, chopped
-  *  **1/2** teaspoon dried basil
+  *  **1 1/2** teaspoon dried basil
   *  **2** tablespoons Slap Ya Mama/Cajun seasoning, (adjust to suit your tastes/heat preference)
   *  **1** teaspoon salt
-  *  **1** teaspoon black pepper
-  *  **1/4** teaspoon Cayenne powder
+  *  **1/2** teaspoon black pepper
+  *  **1/2** teaspoon Cayenne powder
   *  **14** ounces (400 g) can crushed tomatoes
   *  **1 1/2** cups uncooked white rice (short grain or long grain)
   *  **2 1/2** cups low sodium chicken broth
@@ -40,3 +39,4 @@ Optional
 4\. Add Shrimp: Jumbo, uncooked shrimp could be added in the same time as the rice and cooked with everything together. 
 
 5\. Serve: Remove from heat and rest with the lid on for 10 minutes. Then gently fluff jambalya rice with a fork and rest again for 5 minutes before serving.
+
