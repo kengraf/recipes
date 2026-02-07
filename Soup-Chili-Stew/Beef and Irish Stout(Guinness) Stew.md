@@ -1,6 +1,6 @@
 [![](/images/495af533-5758-45ef-9f29-10ccb51bee6a.jpg)](http://images.media-allrecipes.com/userphotos/250x250/377755.jpg)
 
-#  Beef and Irish Stout Stew
+#  Beef and Irish Stout(Guinness) Stew
 
 **Prep** 30 m  
 **Cook** 3 h  
@@ -21,6 +21,7 @@
   *  **2** cups chopped carrot
   *  **1** sprig fresh thyme
   *  **1** tablespoon chopped fresh parsley for garnish
+  *  3-4 Potatoes
 
 ###  Directions
 
@@ -37,7 +38,9 @@ Pour 1/2 cup of the beer into the pan, and as it begins to boil, scrape any
 bits of food from the bottom of the pan with a wooden spoon. This adds a lot
 of flavor to the broth. Pour in the rest of the beer, and add the carrots and
 thyme. Cover, reduce heat to low, and simmer for 2 to 3 hours, stirring
-occasionally. Taste and adjust seasoning before serving. Garnish with chopped
+occasionally. 
+Add potatos with an hour left.
+Taste and adjust seasoning before serving. Garnish with chopped
 parsley.
 
 ###  Nutrition

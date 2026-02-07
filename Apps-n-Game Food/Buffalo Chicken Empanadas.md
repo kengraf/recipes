@@ -8,7 +8,7 @@
 - 2 cups shredded cooked chicken
 - 1/2 cup shredded cheddar cheese blend
 - 1 egg, 1 tsp water for egg wash
-- 2 pie crusts cut into 4" circles
+- 1 package (14 ounces) Goya empanada wrappers (10 pieces) or 2 pie crusts cut into 4" circles
 
 ## DIRECTIONS
 - COMBINE cream cheese, Frank's RedHot Sauce and dressing in medium bowl until blended. Stir in onions, chicken and cheese.
@@ -18,4 +18,5 @@
 - Sprinkle them with sea salt, arrange them on the baking sheets, and make slits in each empanada.
 - BAKE at 375°F for 20-22 minutes.
 - Serve with additional Frank's RedHot Sauce and/or blue cheese dressing for dipping.
+
 

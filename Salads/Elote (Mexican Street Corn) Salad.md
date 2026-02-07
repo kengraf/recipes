@@ -1,6 +1,6 @@
 [![](/images/Elote-Salad-010.webp)](https://www.acouplecooks.com/wp-content/uploads/2021/06/Elote-Salad-010.jpg)
 
-#  Broccoli with Toasted Garlic and Hazelnuts
+#  Elote (Mexican Street Corn) Salad
 
 **Prep** 15 min  
 **Cook** 15 min  
