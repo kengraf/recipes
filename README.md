@@ -4,13 +4,13 @@ This repo is my goto set of personal favorites.  In 2023 the number of recipes w
 When the recipe was culled from the Internet as is, the image is clickable, going to the original source.
 
 ### Free sources of ideas
-[Allrecipes](https://www.allrecipes.com/): User-rated find popular, tested dishes.
-[Food Network:](https://www.foodnetwork.com/recipes) Celebrity chefs and experts, varied tastes and skill levels.
-[Epicurious](https://www.epicurious.com/)
-[Simply Recipes](https://www.simplyrecipes.com/): Focused on home cooking.
-[NY Times Cooking](https://cooking.nytimes.com/): Well-tested recipe database and user reviews.
-[Hannaford Fresh magazine](https://www.hannaford.com/recipes)  
-[Wegmans](https://shop.wegmans.com/shop/recipes)  
+[Allrecipes](https://www.allrecipes.com/): User-rated find popular, tested dishes.  
+[Food Network:](https://www.foodnetwork.com/recipes) Celebrity chefs and experts, varied tastes and skill levels.  
+[Epicurious](https://www.epicurious.com/)  
+[Simply Recipes](https://www.simplyrecipes.com/): Focused on home cooking.  
+[NY Times Cooking](https://cooking.nytimes.com/): Well-tested recipe database and user reviews.  
+[Hannaford's Fresh magazine](https://www.hannaford.com/recipes)   
+[Wegmans](https://shop.wegmans.com/shop/recipes)    
 
 ### Meals for Two
 
