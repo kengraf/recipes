@@ -1,6 +1,6 @@
 # Strawberry Cheesecake Parfait
 
-<img src="images/trawberry-Cheesecake-Parfait.webp" width="270" height="400" />
+<img src="images/strawberry-Cheesecake-Parfait.webp" width="270" height="400" />
 
 **Makes** 6 servings  
 
