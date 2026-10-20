@@ -1,8 +1,8 @@
-![](/images/Apple-Sturdel.jpg)
+![](https://images/Apple-Sturdel.jpg)
 
 # Apple Strudel
 
-**Makes** 2 Strudels (4 servings each) 
+**Makes** 2 Strudels (4 servings each)  
 **Source:** [Step by step, with pics for first timers](https://www.thecountrycook.net/apple-strudel/)
 
 ###  Ingredients
