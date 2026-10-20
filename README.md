@@ -12,6 +12,9 @@ When the recipe was culled from the Internet as is, the image is clickable, goin
 [Hannaford's Fresh magazine](https://www.hannaford.com/recipes)   
 [Wegmans](https://shop.wegmans.com/shop/recipes)    
 
+### Octoberfast ideas
+[Good list at bottom of page](https://www.daringgourmet.com/traditional-kartoffelpuffer-reibekuchen-german-potato-pancakes/)
+
 ### Meals for Two
 
 The focus is on apps that are easy, meals that can simmer, and desserts you can make ahead.  So the focus is where it should be and not on the kitchen.  
