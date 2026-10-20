@@ -1,4 +1,4 @@
-![](https://images/Apple-Sturdel.jpg)
+![](/images/Apple-Sturdel.jpg)
 
 # Apple Strudel
 
