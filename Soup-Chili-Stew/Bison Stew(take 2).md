@@ -2,17 +2,19 @@
 
 [![](/images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
 
-#  Bison Chili
+#  Bison Stew
 
-**Prep** 5 mins  
-**Cook** 45 mins  
-**Source:** Game day lab
+**Prep** 15 mins  
+**Cook** 2 hours  
+
 
 ###  Ingredients
 
 * 1½ tablespoons olive oil
 * ½ medium white onion
+* 2 carrots sliced
 * 2 celery stalks, diced
+* 2 medium potatoes
 * 1 garlic clove, minced
 * 1 pound ground buffalo meat
 * 2 tablespoons chili powder
@@ -22,8 +24,8 @@
 * ½ teaspoon ground cumin
 * 1 teaspoon pink Himalayan salt
 * ½ teaspoon freshly ground black pepper
-* 1 (28-ounce) can crushed tomatoes
-* 2 cups bone broth
+* 1 tbsp tomatoe paste
+* 2 cups beef broth
 * 1 green bell pepper, chopped
 * 1 tablespoon chopped green onions
 * Avocado chunks, for serving
