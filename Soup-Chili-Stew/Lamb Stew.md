@@ -5,7 +5,6 @@
 **Prep** 30 m  
 **Cook** 2 h  
 **Makes** 8 
-**Source:** [Allrecipes.com](http://allrecipes.com/recipe/70298/beef-and-irish-stout-stew/)
 
 ###  Ingredients
 
