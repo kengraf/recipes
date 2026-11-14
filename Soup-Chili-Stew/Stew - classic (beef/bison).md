@@ -1,6 +1,6 @@
 ﻿
 
-[![](/images/stew.jpg)]()
+[![](/images/Beef-Stew-9.jpg)]()
 
 #  Stew - Classic (Beef/Bison)
 
