@@ -1,8 +1,8 @@
 ﻿
 
-[![](/images/d5b248ea-f621-4ce5-b622-5721e55bcd16.jpg)](https://thewoksoflife.com/wp-content/uploads/2017/02/bison-chili-7-500x500.jpg)
+[![](/images/stew.jpg)]()
 
-#  Bison Stew
+#  Stew - Classic (Beef/Bison)
 
 **Prep** 15 mins  
 **Cook** 2 hours  
@@ -10,33 +10,31 @@
 
 ###  Ingredients
 
-* 1½ tablespoons olive oil
-* ½ medium white onion
-* 2 carrots sliced
-* 2 celery stalks, diced
-* 2 medium potatoes
-* 1 garlic clove, minced
-* 1 pound ground buffalo meat
-* 2 tablespoons chili powder
-* 1½ teaspoons smoked paprika
-* ½ teaspoon dried oregano
-* ½ teaspoon cayenne
-* ½ teaspoon ground cumin
-* 1 teaspoon pink Himalayan salt
+* 2 pounds beef (or bison) stew meat, cut into 1-inch cubes
+* 1 teaspoon kosher salt
 * ½ teaspoon freshly ground black pepper
-* 1 tbsp tomatoe paste
-* 2 cups beef broth
-* 1 green bell pepper, chopped
-* 1 tablespoon chopped green onions
-* Avocado chunks, for serving
+* 2 tablespoons extra virgin olive oil
+* 1 large yellow onion, cut into chunks
+* 4 garlic cloves, minced
+* 2 tablespoons red wine vinegar
+* 2 tablespoons tomato paste
+* 2 tablespoons flour
+* 1 cup red wine
+* 4 cups low-sodium beef broth
+* 4 medium white potatoes, chopped
+* 4 medium carrots, peeled and sliced on a diagonal
+* 3 celery ribs, chopped
 
 ###  Directions
 
-* In a large pot, heat the oil over medium-low heat. Add the onion, celery, and garlic and sauté until the onion is translucent.
-* Add the meat, breaking it up into small pieces with a spoon as it cooks.
-* Stir in the chili powder, paprika, oregano, cayenne, cumin, salt, and black pepper and cook until the meat is evenly browned about 6 minutes.
-* Add the tomatoes, broth, and bell pepper and stir. Bring to a boil. Reduce the heat to low, cover, and simmer for 20 to 30 minutes to allow the flavors to develop.
-* Serve with avocado chunks alongside, and enjoy!
+* Season the meat. Pat the meat dry with paper towels. Season with salt and pepper.
+* Sear the meat. In a large stockpot or Dutch oven, heat the oil over medium-high heat. Working in batches, place the meat in the pot and sear on all sides until golden, 2 to 3 minutes per side, then remove to a plate.
+* Saute the onion. Add the onion to the pot and pour in the vinegar (which will help to loosen browned bits from the bottom of the pot) and cook for 3 to 4 minutes, until the onion is softened. Add the tomato paste and cook for a minute more.
+* Return the beef to the pot. Add the seared beef back to the pot and sprinkle the flour on top. Stir everything together, until the flour is fully dissolved.
+* Add the liquids and aromatics. Add the wine, broth, thyme, and bay leaf. Use a large spoon or spatula to stir everything together. Bring the broth to a boil, then reduce the heat to low and simmer partially covered for 1 hour.
+* Add the veggies. Add the potatoes, carrots, and celery. Cook for an additional 30 minutes, or until the vegetables are fork-tender.
+
+Serve with crusty bread or over rice.
 
 
 
